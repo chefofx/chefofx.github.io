@@ -1,5 +1,8 @@
 # All of the Chef(x) content in one place. I think...
 
+![Image](C:\Users\Student\Google Drive)
+
+
 [Chef(x) Comics](https://www.instagram.com/chefofx/) is my attempt to illistrate concepts related to science or creativity. The Chef(x) character is a stick figure mathematician. Sound [familiar](http://www.xkcd.com/)? The Red Chef is his evil twin, and the Sheep is a layman. 
 
 [The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) is a series where I have a conversation with a guest about mental health, jail, creativity, and/or science. The idea is to find the profound in the mundane through exploring the minds of others with unusual pasts. Sloppy philosophical conversations. Criminally insane stories. 
