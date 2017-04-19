@@ -1,6 +1,6 @@
 # All of the Chef(x) content in one place. I think...
 
-![Image](C:\Users\Student\Google Drive)
+![Image](C:\Users\Student\Google Drive\chef(x)sq.jpg)
 
 
 [Chef(x) Comics](https://www.instagram.com/chefofx/) is my attempt to illistrate concepts related to science or creativity. The Chef(x) character is a stick figure mathematician. Sound [familiar](http://www.xkcd.com/)? The Red Chef is his evil twin, and the Sheep is a layman. 
