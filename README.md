@@ -6,9 +6,9 @@
 
 Chef(x) Mixtapes: 
 - [Elmwood Recipes](https://drive.google.com/open?id=0B1Ol8fuZMTCWTGY1N29lakxuSnc) is a series of reality raps about psychosis and jail, written while I was incarcerated.  
-- [Evans Cheffin](https://drive.google.com/open?id=0B1Ol8fuZMTCWVS1UNDJueEh1SE0) is a project written after my release which focuses on my thoughts about rebuilding my life. I share some of my enthusiasm for science while grappling with my inability to participate in science. 
+- [Evans Cheffin](https://drive.google.com/open?id=0B1Ol8fuZMTCWVS1UNDJueEh1SE0) is a project written after my release which focuses on my thoughts about rebuilding my life. I share some of my enthusiasm for science while grappling with my inability to participate in science. [Very based.](https://www.youtube.com/watch?v=i8u6EodZseg) 
 
-[Chef(x) Store](http://www.etsy.com/shop). You already cook like a true chef. Now you can look like one! Bahaha! Check out the Chef hats, and contact me if you want to design one!
+[Chef(x) Store](http://www.etsy.com/shop)( ...with one item). You already COOK like a true chef. Now you can LOOK like one! Check out the Chef hat, and contact me if you want to design one!
 
 
 
