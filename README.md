@@ -10,6 +10,12 @@ Chef(x) Mixtapes:
 
 [Chef(x) Store](http://www.etsy.com/shop). You already cook like a true chef. Now you can look like one! Bahaha! Check out the Chef hats, and contact me if you want to design one!
 
+
+
+
+
+
+
 [GitHub editor](https://github.com/chefofx/chefofx.github.io/edit/master/README.md)
 
 [Jekyll](https://jekyllrb.com/)
