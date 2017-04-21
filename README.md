@@ -1,8 +1,5 @@
 # All of the Chef(x) content in one place. I think...
 
-![Image](C:\Users\Student\Google Drive\chef(x)sq.jpg)
-
-
 [Chef(x) Comics](https://www.instagram.com/chefofx/) is my attempt to illistrate concepts related to science or creativity. The Chef(x) character is a stick figure mathematician. Sound [familiar](http://www.xkcd.com/)? The Red Chef is his evil twin, and the Sheep is a layman. 
 
 [The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) is a series where I have a conversation with a guest about mental health, jail, creativity, and/or science. The idea is to find the profound in the mundane through exploring the minds of others with unusual pasts. Sloppy philosophical conversations. Criminally insane stories. 
@@ -13,13 +10,9 @@ Chef(x) Mixtapes:
 
 [Chef(x) Store](http://www.etsy.com/shop). You already cook like a true chef. Now you can look like one! Bahaha! Check out the Chef hats, and contact me if you want to design one!
 
-You can use the [editor on GitHub](https://github.com/chefofx/chefofx.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+[GitHub editor](https://github.com/chefofx/chefofx.github.io/edit/master/README.md)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+[Jekyll](https://jekyllrb.com/)
 
 ```markdown
 Syntax highlighted code block
@@ -38,13 +31,3 @@ Syntax highlighted code block
 
 [Link](url) and ![Image](src)
 ```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/chefofx/chefofx.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
