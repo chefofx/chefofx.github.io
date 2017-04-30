@@ -7,4 +7,4 @@ Chef(x) Mixtapes:
 - [Evans Cheffin](https://drive.google.com/open?id=0B1Ol8fuZMTCWVS1UNDJueEh1SE0) is a project written after my release which focuses on my thoughts about rebuilding my life. I share some of my enthusiasm for science while grappling with my inability to participate in science. Very [based.](http://i1.kym-cdn.com/photos/images/original/000/093/172/THANK-YOU-BASED-GOD.jpg)
 - [Dishes4Days](https://drive.google.com/open?id=0B1Ol8fuZMTCWTnNjOUlsLS1Qdjg) is new material, with the same old story. Listen to the life of a young, criminally insane, chef mathematician. Extremely based. Dare I say [dangerously based](https://www.youtube.com/watch?v=i8u6EodZseg). I really need to stop rapping after this one and move on to projects of greater social value! I may have created a monster. Nikola Tesla on acid watching Cirque du Soleil. OOOooo!
 
-[Chef(x) Store!](http://www.etsy.com/shop) You already COOK like a true chef. Now you can LOOK like one! Check out the Chef hat!
+[Chef(x) Store!](https://www.etsy.com/shop/Chefofx?ref=search_shop_redirect) You already COOK like a true chef. Now you can LOOK like one! Check out the Chef hat!
