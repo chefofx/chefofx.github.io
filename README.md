@@ -1,3 +1,5 @@
+I've given a rough summary of each of my projects below. Click the highlighted [word](https://img.memesuper.com/0d2473e45db5e6cb52934ad3afafe0ed_img-word-meme_554-369.jpeg) to navigate to the content. Easy peasy. 
+
 [Chef(x) Comics](https://www.instagram.com/chefofx/) is my attempt to illustrate concepts related to science and creativity. The Chef(x) character is a stick figure mathematician. Sound [familiar](http://www.xkcd.com/)? The Red Chef is his evil twin, and the Sheep is a layman. 
 
 [The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) is a series where I have a conversation with a guest about mental health, jail, creativity, and/or science. The idea is to find the profound in the mundane by exploring the minds of people with interesting or unusual pasts. Sloppy philosophical conversations. Criminally insane stories. 
