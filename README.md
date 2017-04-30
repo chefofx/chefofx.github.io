@@ -4,6 +4,7 @@
 
 Chef(x) Mixtapes: 
 - [Elmwood Recipes](https://drive.google.com/open?id=0B1Ol8fuZMTCWTGY1N29lakxuSnc) is a series of reality raps about psychosis and jail, written while I was incarcerated.  
-- [Evans Cheffin](https://drive.google.com/open?id=0B1Ol8fuZMTCWVS1UNDJueEh1SE0) is a project written after my release which focuses on my thoughts about rebuilding my life. I share some of my enthusiasm for science while grappling with my inability to participate in science. Very [based.](http://i56.tinypic.com/w98i07.jpg) 
+- [Evans Cheffin](https://drive.google.com/open?id=0B1Ol8fuZMTCWVS1UNDJueEh1SE0) is a project written after my release which focuses on my thoughts about rebuilding my life. I share some of my enthusiasm for science while grappling with my inability to participate in science. Very [based.](http://i56.tinypic.com/w98i07.jpg)
+- [Dishes4Days](https://drive.google.com/open?id=0B1Ol8fuZMTCWTnNjOUlsLS1Qdjg) is new material, with the same old story of the life of a young, criminally insane mathematician. Extremely Based. Dare I say dangerously Based. I really need to stop rapping after this one and move on to projects of greater social value! I may have created a monster. Nikola Tesla on acid watching Cirque du Soleil. OOOooo!
 
 [Chef(x) Store!](http://www.etsy.com/shop) You already COOK like a true chef. Now you can LOOK like one! Check out the Chef hat!
