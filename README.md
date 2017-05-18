@@ -4,13 +4,13 @@ I've given a rough summary of each of my projects below. Click the highlighted [
 
 The Chef(x) Podcast is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). In this series I have a conversation with a guest about science, creativity, jail, and/or mental health. The idea is to find the profound in the mundane by exploring the minds of people with interesting or unusual pasts. Sloppy philosophical conversations. Criminally insane stories. 
 
-Some [selected songs](https://soundcloud.com/redchef) from various Chef(x) Mixtapes are now available on SoundCloud! Reality raps, based freestyles, with a little somethin' soft for my science geeks. Nah mean?  
+Some selected songs from various Chef(x) Mixtapes are now available on SoundCloud.com/redchef. BUT SINCE YOU'RE ALREADY HERE, access the full mixtapes + lyrics below. Reality raps, based freestyles, with a little somethin' soft for my science geeks. Nah mean?  
 
-Full Albums! and Lyrics( Old->New):
-- [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWOUpzdnZqLUh1WG8)
-- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) [Lyrics](https://drive.google.com/open?id=0B1Ol8fuZMTCWLTlNTUxEZER5c1U)
-- [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE)
-- [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)
+Full Chef(x) Mixtapes:
+- [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWOUpzdnZqLUh1WG8)
+- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics](https://drive.google.com/open?id=0B1Ol8fuZMTCWLTlNTUxEZER5c1U)
+- [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE)
+- [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)
 
 [Chef(x) Store!](https://www.etsy.com/shop/Chefofx?ref=search_shop_redirect) You already COOK like a chef. Now you can LOOK like one! Support everything Chef(x) with a Chef hat! Who knows, it might improve your meals...
 
