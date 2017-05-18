@@ -8,7 +8,7 @@ Some selected songs from various Chef(x) Mixtapes are now available on [SoundClo
 
 Full Chef(x) Mixtapes:
 - [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWOUpzdnZqLUh1WG8)
-- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics](https://drive.google.com/open?id=0B1Ol8fuZMTCWLTlNTUxEZER5c1U)
+- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE)
 - [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)
 
