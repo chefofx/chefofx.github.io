@@ -4,7 +4,7 @@ I've given a rough summary of each of my projects below. Click the highlighted [
 
 The Chef(x) Podcast is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). In this series I have a conversation with a guest about science, creativity, jail, and/or mental health. The idea is to find the profound in the mundane by exploring the minds of people with interesting or unusual pasts. Sloppy philosophical conversations. Criminally insane stories. 
 
-Some selected songs from various Chef(x) Mixtapes are now available on SoundCloud.com/redchef. BUT SINCE YOU'RE ALREADY HERE, access the full mixtapes + lyrics below. Reality raps, based freestyles, with a little somethin' soft for my science geeks. Nah mean?  
+Some selected songs from various Chef(x) Mixtapes are now available on [SoundCloud.com/redchef](https://soundcloud.com/redchef). BUT SINCE YOU'RE ALREADY HERE, access the full mixtapes + lyrics below. Reality raps, based freestyles, with a little somethin' soft for my science geeks. Nah mean?  
 
 Full Chef(x) Mixtapes:
 - [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWOUpzdnZqLUh1WG8)
