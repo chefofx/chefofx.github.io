@@ -7,7 +7,7 @@ The Chef(x) Podcast is available on [iTunes](https://itunes.apple.com/us/podcast
 Some selected songs from various Chef(x) Mixtapes are now available on [SoundCloud.com/redchef](https://soundcloud.com/redchef). BUT SINCE YOU'RE ALREADY HERE, access the full mixtapes + lyrics below. Reality raps, based freestyles, with a little somethin' soft for my science geeks. Nah mean?  
 
 Full Chef(x) Mixtapes:
-- [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWOUpzdnZqLUh1WG8)
+- [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)
 - [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE)
 - [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)
