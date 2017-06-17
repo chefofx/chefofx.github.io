@@ -6,14 +6,10 @@ The Chef(x) Podcast is available on [iTunes](https://itunes.apple.com/us/podcast
 
 Some selected songs from various Chef(x) Mixtapes are now available on [SoundCloud.com/redchef](https://soundcloud.com/redchef). BUT SINCE YOU'RE ALREADY HERE, access the full mixtapes + lyrics below. Reality raps, based freestyles, with a little somethin' soft for my science geeks. Nah mean?  
 
-Full Chef(x) Mixtapes:
+Full Mixtapes:
 - [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)
-- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)
+- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE)
 - [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)
-
-[Chef(x) Store!](https://www.etsy.com/shop/Chefofx?ref=search_shop_redirect) You already COOK like a chef. Now you can LOOK like one! Support everything Chef(x) with a Chef hat! Who knows, it might improve your meals...
-
-The [Chef(x) blog](https://chefofxblog.wordpress.com/) is still a work in progress. Visit for some essays inspired by or vaguely connected to some of my other work.
 
 Chefs keep cookin. Email: chefofx@gmail.com
