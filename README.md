@@ -7,9 +7,9 @@ I've given a rough summary of each of my projects below.
 
 **Red Chef Mixtapes (R):** (My fair warning: Lyrics > Songs...But feel free to *torture your ears* at your leisure.)
 - [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk) This was written in jail and recorded on an iPhone.
-- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) This was written right before I started the podcast, and recorded during the first episodes.
+- [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) This was written right before I started the podcast.
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE) Wrote and recorded each song in a single day. 
-- [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written while I was podcasting, bugging the DASB, and debating *The Black Club*.
+- [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written while I was chillin with the DASB and *The Black Club*.
 
 Public SoundlCloud (with *less* access): [SoundCloud.com/redchef](https://soundcloud.com/redchef). Generally Speaking: *Lyrics > Songs.*
 
