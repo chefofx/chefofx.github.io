@@ -10,6 +10,6 @@ I've given a rough summary of each of my projects below.
 - [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE)
 - [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)
-Public soundlcloud:(less access) [SoundCloud.com/redchef](https://soundcloud.com/redchef).
+Public soundlcloud (with *less* access): [SoundCloud.com/redchef](https://soundcloud.com/redchef).
 
 *Chefs keep cookin.* Email: chefofx@gmail.com
