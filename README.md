@@ -11,6 +11,6 @@ I've given a *rough summary* of each of **my projects below:**
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE) Each song was written and recorded in a single day. 
 - [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written while I was chillin with the DASB and *The Black Club*. Basically I was in *normal* society. 
 
-Public SoundlCloud (with *less* access): [SoundCloud.com/redchef](https://soundcloud.com/redchef).
+Public SoundlCloud (with *less* access): [SoundCloud.com/redchef.](https://soundcloud.com/redchef)
 
 *Chefs keep cookin.* Email: chefofx@gmail.com
