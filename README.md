@@ -1,4 +1,4 @@
-**Chef(x)** *Meals*: 
+You just fucked up and fount **The Chef(x) *Meals*.** (That's right.)
 
 **Chef(x) Comics (PG)** ([Instagram](https://www.instagram.com/chefofx/), [PDF](https://drive.google.com/open?id=0B1Ol8fuZMTCWZDNUX04zVmZLQ2s)) is my attempt to illustrate concepts. The Chef(x) represents our drive to understand the universe. The Red Chef represents our drive to express ourselves through creating. The Sheep (or Sheep(x)) represents our ignorance. Shoutout [XKCD](http://www.xkcd.com/).
 
