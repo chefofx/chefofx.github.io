@@ -1,16 +1,16 @@
-You just fucked up and fount **The Chef(x) *Meals*.** (That's right.)
+Looks like you done fount **The Chef(x) *Meals*.** Welcome to the *Kitchen*, ya fucking *Sheep*-ass ninja. - Red Chef
 
-**Chef(x) Comics (PG)** ([Instagram](https://www.instagram.com/chefofx/), [PDF](https://drive.google.com/open?id=0B1Ol8fuZMTCWZDNUX04zVmZLQ2s)) is my attempt to illustrate concepts. The Chef(x) represents our drive to understand the universe. The Red Chef represents our drive to express ourselves through creating. The Sheep (or Sheep(x)) represents our ignorance. Shoutout [XKCD](http://www.xkcd.com/).
+**Chef(x) Comics (PG)** ([Instagram](https://www.instagram.com/chefofx/), [PDF](https://drive.google.com/open?id=0B1Ol8fuZMTCWZDNUX04zVmZLQ2s)) is a set of concept illustrations. Chef(x)(the black stick figure with a chef hat) represents the drive to understand the universe. Red Chef represents the drive to create. Sheep(x) represents ignorance. Shoutout [XKCD](http://www.xkcd.com/).
 
-~~The Chef(x) Podcast~~ **The Sheep(x) Yodcast (R)** is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google Play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). I speak with a guest about science, creativity, jail, mental health or anything in hyperspace. The idea is to find the profound in the mundane by exploring the minds of people with interesting or unusual pasts. *Sloppy philosophical conversations. Criminally insane stories.* [The Most Important ?'s in the Universe!](https://drive.google.com/open?id=0B1Ol8fuZMTCWWlVXc2dfLUZTdnM) (Meaningless questions.)
+~~The Chef(x) Podcast~~ **The Sheep(x) Yodcast (R)** is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google Play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). I speak with a guest about anything in hyperspace. The idea is to explore the minds of people with interesting or unusual pasts. *Sloppy philosophical conversations. Criminally insane stories.* [The Most Important ?'s in the Universe!](https://drive.google.com/open?id=0B1Ol8fuZMTCWWlVXc2dfLUZTdnM) (Meaningless questions.)
 
 
-**Red Chef Mixtapes (R):** (My fair warning: Lyrics > Songs... But feel free to *torture your ears*, if thats what you're into.)
+**Red Chef Mixtapes (R):** Private SoundCloud. (Fair Warning: Lyrics > Songs... But feel free to *torture your ears*, if thats what you're into.)
 - [Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk) This was written in jail and recorded on an iPhone.
 - [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) This was written right before I started the podcast.
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE) Each song was written and recorded in a single day. 
 - [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written while I was chillin with the DASB and *The Black Club*. Basically I was in *normal* society. 
 
-Public SoundlCloud (with *less* access): [SoundCloud.com/redchef.](https://soundcloud.com/redchef)
+*Public* SoundCloud (with *fewer* songs): [SoundCloud.com/redchef.](https://soundcloud.com/redchef)
 
 *Chefs keep cookin.* Email: chefofx@gmail.com
