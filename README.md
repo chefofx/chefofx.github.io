@@ -1,4 +1,4 @@
-Looks like you found **The Chef(x) *Meals*.** Welcome to the *Kitchen*.
+**Chef(x) *Meals*.**
 
 **Chef(x) Comics (PG)** ([Instagram](https://www.instagram.com/chefofx/), [PDF](https://drive.google.com/open?id=0B1Ol8fuZMTCWZDNUX04zVmZLQ2s)) is a set of concept illustrations. Chef(x) *(the black stick figure with a chef hat)* represents insight. Red Chef represents creativity. Sheep(x) represents ignorance. Shoutout [XKCD](http://www.xkcd.com/).
 
