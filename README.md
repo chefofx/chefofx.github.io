@@ -1,6 +1,6 @@
 **Chef(x) *Meals*.**
 
-**Chef(x) Comics (PG)** ([Instagram](https://www.instagram.com/chefofx/), [PDF](https://drive.google.com/open?id=0B1Ol8fuZMTCWZDNUX04zVmZLQ2s)) is a set of concept illustrations. Chef(x) *(the black stick figure with a chef hat)* represents insight. Red Chef represents creativity. Sheep(x) represents ignorance. Shoutout [XKCD](http://www.xkcd.com/).
+**Chef(x) Comics (PG)** ([Instagram](https://www.instagram.com/chefofx/)) is a set of concept illustrations. Chef(x) *(the black stick figure with a chef hat)* represents insight. Red Chef represents creativity. Sheep(x) represents ignorance. Shoutout [XKCD](http://www.xkcd.com/).
 
 ~~The Chef(x) Podcast~~ **The Sheep(x) Yodcast (R)** is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google Play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). I speak with a guest about anything in hyperspace. The idea is to explore the minds of people with interesting or unusual pasts. *Sloppy philosophical conversations. Criminally insane stories.* [The Most Important ?'s in the Universe!](https://drive.google.com/open?id=0B1Ol8fuZMTCWWlVXc2dfLUZTdnM) (Meaningless questions.)
 
