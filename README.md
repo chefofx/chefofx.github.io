@@ -9,7 +9,7 @@
 - [Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) This was written right before I started the podcast.
 - [Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc) 5/5/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE) Each song was written and recorded in a single day. 
 - [Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw) 5/16/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written with the DASB and *The Black Club*. Basically, in *normal* society.
-- [Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII) 7/28/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) Summer school.
+- [Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII) 7/28/17 [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) Summer '17.
 
 *Public* SoundCloud (with *fewer* songs): [SoundCloud.com/redchef.](https://soundcloud.com/redchef)
 *Chefs keep cookin.* Email: chefofx@gmail.com
