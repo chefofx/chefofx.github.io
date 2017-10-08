@@ -5,11 +5,11 @@
 ~~The Chef(x) Podcast~~ **The Red Sheep(x) Yodcast (R)** is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google Play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). I speak with a guest about anything in hyperspace. *Sloppy philosophical conversations. Criminally insane stories.
 
 
-**Red Chef's Mixtapes (R):**
+**Red Chef Music (R):**
 
-*[SoundCloud.com/redchef.](https://soundcloud.com/redchef)*
+*[SoundCloud.com/RedChef](https://soundcloud.com/redchef)*
 
-**FULL Mixtapes *with LaTeX lyrics***
+**FULL Mixtapes *with lyrics! (LaTeX)* **
 
 - [**Elmwood Recipes.**](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [**Lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk) This was written in jail and recorded on an iPhone.
 - [**Evans Cheffin.**](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [**Lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) This was written right before I started the podcast.
