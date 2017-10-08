@@ -4,9 +4,9 @@
 
 ~~The Chef(x) Podcast~~ [**The Red Sheep(x) Yodcast (R)**](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)  is a set of *sloppy philosophical conversations* and *criminally insane stories.*
 
-**Red Chef Music (R):** *[SoundCloud.com/RedChef](https://soundcloud.com/redchef)*
+[**Red Chef Music (R)**](https://soundcloud.com/redchef)
 
-**FULL Mixtapes *with lyrics! (LaTeX)***
+**FULL Mixtapes! (with *LaTeX* lyrics.)**
 
 - [**Elmwood Recipes.**](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH) 3/24/17 [**Lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk) This was written in jail and recorded on an iPhone.
 - [**Evans Cheffin.**](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP) 4/13/17 [**Lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) This was written right before I started the podcast.
