@@ -4,7 +4,7 @@
 
 ~~The Chef(x) Podcast~~ [**The Red Sheep(x) Yodcast (R)**](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)  is a set of *sloppy philosophical conversations* and *criminally insane stories.*
 
-[**Red Chef Music (R)**](https://soundcloud.com/redchef)
+[**Red Chef Music (R)**](https://soundcloud.com/redchef) is a nonrandom *sample of songs* from my mixtapes. 
 
 **FULL Mixtapes! (with *LaTeX* lyrics.)**
 
