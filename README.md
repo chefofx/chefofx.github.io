@@ -1,9 +1,8 @@
 **Chef(x) *Meals*.**
 
-**Chef(x) Comics (PG)** ([Instagram](https://www.instagram.com/chefofx/)) is a set of concept illustrations.
+**[Chef(x) Comics (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
 
-~~The Chef(x) Podcast~~ **The Red Sheep(x) Yodcast (R)** is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google Play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). I speak with a guest about anything in hyperspace. *Sloppy philosophical conversations. Criminally insane stories.
-
+~~The Chef(x) Podcast~~ **The Red Sheep(x) Yodcast (R)** is available on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2) and [Google Play](https://playmusic.app.goo.gl/?ibi=com.google.PlayMusic&isi=691797987&ius=googleplaymusic&link=https://play.google.com/music/m/I3rgybfbwoigom32k224js4y27a?t%3DThe_Chef(x)_Podcast%26pcampaignid%3DMKT-na-all-co-pr-mu-pod-16). *Sloppy philosophical conversations. Criminally insane stories.*
 
 **Red Chef Music (R):**
 
