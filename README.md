@@ -1,4 +1,4 @@
-*This page is home to all of the Chef(x) Meals (pronounced 'Chef-of-x.') Mmmm...Delicious.*
+(Chef(x) = 'chef-of-x.')
 
 **[Chef(x) Comics (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
 
