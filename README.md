@@ -1,6 +1,6 @@
 **Many moons, plenty Meals. *Mmmm...Delicious.*** (*Chef(x) is pronounced 'Chef-of-x.'*)
 
-[**Chef(x) Explained**](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc) = *background theory*. 
+[**Chef(x) Explained**](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc) = background *theory of Chef's.*  
 
 [**Chef(x) Comics (PG)**](https://www.instagram.com/chefofx/) is a set of *concept illustrations.*
 
