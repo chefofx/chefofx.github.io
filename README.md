@@ -1,6 +1,8 @@
-**Chef(x) *Meals*.**
+**Many moons, plenty Meals. *Mmmm...Delicious.*** (*Chef(x) is pronounced 'Chef-of-x.'*)
 
-**[Chef(x) Comics (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
+[**Chef(x) Explained**](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc) = *background theory*. 
+
+[**Chef(x) Comics (PG)**](https://www.instagram.com/chefofx/) is a set of *concept illustrations.*
 
 ~~The Chef(x) Podcast~~ [**The Red Sheep(x) Yodcast (R)**](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)  is a set of *sloppy philosophical conversations* and *criminally insane stories.*
 
