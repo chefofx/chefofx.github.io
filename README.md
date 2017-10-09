@@ -14,6 +14,6 @@
 
 ~~The Chef(x) Podcast~~ **[The Red Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of *sloppy philosophical conversations* and *criminally insane stories.*
 
-**[Chef(x) Explained](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** = *Skill sets*, a theory of *Chefs.*  
+**[Chef(x): Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** = *Skill sets*, a theory of *Chefs.*  
 
 chefofx@gmail.com
