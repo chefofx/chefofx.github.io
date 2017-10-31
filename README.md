@@ -12,7 +12,7 @@
 - **[Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw)** 5/16/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written while *fairly socialized* into school.
 - **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) Summer 2017.
 
-~~The Chef(x) Podcast~~ **[The Red Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of *sloppy philosophical conversations* and *criminally insane stories.*
+**[The Red Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of *sloppy philosophical conversations* and *criminally insane stories.*
 
 **[Chef(x): Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** = *Skill sets*, a theory of *Chefs.*  
 
