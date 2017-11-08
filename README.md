@@ -1,5 +1,7 @@
 (Chef(x) = 'chef-of-x.')
 
+**[Chef(x) Store!](https://www.redbubble.com/shop/chefofx)** has some cool stickers, T-shirts, and posters 'on the cheap.' 
+
 **[Chef(x) Comics (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
 
 **[Red Chef Music (R)](https://soundcloud.com/redchef)** is a nonrandom *sample of songs* from my mixtapes. 
