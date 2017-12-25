@@ -6,7 +6,7 @@
 
 **[Chef(x) Comics Instagram (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
 
-**[The Chef(x) Podcast (PG-13)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* New podcasts on Fridays! (Only the last 10 episodes will be available.)
+**[The Chef(x) Podcast (PG-13)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* **Episodes every Friday!** (Only the last 10 episodes will be available.)
 
 **[The Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content.)
 
