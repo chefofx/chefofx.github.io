@@ -1,6 +1,6 @@
 (Chef(x) = 'chef-of-x.')
 
-**[Chef(x) Store! (G)](https://www.redbubble.com/shop/chefofx)** has some cool stickers, T-shirts, and posters 'on the cheap.' Support a Chef! 
+**[Chef(x) Store! (G)](https://www.redbubble.com/shop/chefofx)** T-shirts, posters, stickers and more! Proceeds help to improve content quality.   
 
 **[Chef(x): Explained. (G)](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** = *Definitions and Theory* related to the concepts behind *Chefs and Sheep.*  
 
