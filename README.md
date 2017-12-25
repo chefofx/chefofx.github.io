@@ -6,9 +6,9 @@
 
 **[Chef(x) Comics Instagram (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
 
-**[The Chef(x) Podcast (PG-13)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of *sloppy philosophical conversations* involving *quasi-introspective speculation.* (Only the most recent ten episodes will be available...unless you're special.)
+**[The Chef(x) Podcast (PG-13)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* New podcasts on Fridays! (Only the last 10 episodes will be available.)
 
-**[The Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of *sloppy philosophical conversations* and *criminally insane stories.* (top 10 out of 50 yodcast episodes)
+**[The Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content.)
 
 **[Red Chef SoundCloud (R)](https://soundcloud.com/redchef)** is a nonrandom *sample of songs* from my mixtapes. 
 
