@@ -1,16 +1,14 @@
 (Chef(x) = 'chef-of-x.')
 
-**[Chef(x) Store! (G)](https://www.redbubble.com/shop/chefofx)** T-shirts, posters, stickers and more! Proceeds help to improve content quality.   
-
-**[Chef(x): Explained. (G)](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** = *Definitions and Theory* related to the concepts behind *Chefs and Sheep.*  
-
-**[Chef(x) Comics Instagram (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
+**[Chef(x) Store! (G)](https://www.redbubble.com/shop/chefofx)** T-shirts, posters, stickers and more! Proceeds help to improve content quality.    
 
 **[The Chef(x) Podcast (PG-13)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* **Episodes every Friday!** (Only the last 10 episodes will be available.)
 
-**[The Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content.)
+**[Chef(x) Comics Instagram (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
 
 **[Red Chef SoundCloud (R)](https://soundcloud.com/redchef)** is a nonrandom *sample of songs* from my mixtapes. 
+
+**[Chef(x)? Explained. (G)](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** = *Definitions and Theory* related to the concepts behind *Chefs and Sheep.* 
 
 **FULL Mixtapes BELOW! (+lyrics.)**
 
@@ -20,5 +18,7 @@
 - **[Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw)** 5/16/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written while *fairly socialized* into school.
 - **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) Summer 2017.
 - **[Red Sheep](https://soundcloud.com/redchef/sets/red-sheep)** 12/25/17 [**lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z) Court graduation, recalibration.
+
+**[The Sheep(x) Yodcast (R)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content.)
 
 chefofx@gmail.com
