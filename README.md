@@ -1,6 +1,6 @@
 (Chef(x) = 'chef-of-x.')
 
-**[The Chef(x) Store!](https://www.redbubble.com/shop/chefofx)** has T-shirts, posters, stickers and more! Proceeds help to improve content quality.    
+**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has T-shirts, posters, stickers and more! Proceeds help to improve content quality.    
 
 **[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* **Episodes every Friday!** (Only the last 10 episodes will be available.)
 
