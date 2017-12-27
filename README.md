@@ -1,14 +1,14 @@
 (Chef(x) = 'chef-of-x.')
 
-**[Chef(x) Store! (G)](https://www.redbubble.com/shop/chefofx)** T-shirts, posters, stickers and more! Proceeds help to improve content quality.    
+**[Chef(x) Store!](https://www.redbubble.com/shop/chefofx)** T-shirts, posters, stickers and more! Proceeds help to improve content quality.    
 
-**[The Chef(x) Podcast (PG-13)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* **Episodes every Friday!** (Only the last 10 episodes will be available.)
+**[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* **Episodes every Friday!** (Only the last 10 episodes will be available.)
 
-**[Chef(x) Comics Instagram (PG)](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
+**[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of *concept illustrations.*
 
-**[Red Chef SoundCloud (R)](https://soundcloud.com/redchef)** is a nonrandom *sample of songs* from my mixtapes. 
+**[Chef(x) Explained](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** A *conceptual description* of Chefs and Sheep. 
 
-**[Chef(x)? Explained. (G)](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** = *Definitions and Theory* related to the concepts behind *Chefs and Sheep.* 
+**[Red Chef SoundCloud](https://soundcloud.com/redchef)** is a nonrandom *sample of songs* from my mixtapes. 
 
 **FULL Mixtapes BELOW! (+lyrics.)**
 
