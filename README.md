@@ -1,3 +1,5 @@
+![chef x](https://user-images.githubusercontent.com/25256570/34506681-d6f3c80a-efe3-11e7-8b9b-c5ee91219b85.png)
+
 (Chef(x) = 'chef-of-x.')
 
 **[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has T-shirts, posters, stickers and more! Thank you for your support!    
