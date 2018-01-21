@@ -23,7 +23,7 @@
 
 ![chefsetposter](https://user-images.githubusercontent.com/25256570/34506614-5377a19a-efe3-11e7-9a72-263c69f24d5a.png)
 
-**[Chef(x) Explained](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Clarifies the meaning of 'Chefs' and 'Sheep'. 
+**[Chef(x) Explained](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** clarifies the meaning of 'Chefs' and 'Sheep'. 
 
 
 chefofx@gmail.com
