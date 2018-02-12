@@ -6,7 +6,7 @@
 
 **[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of introspective conversations.
 
-**[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Join us.
+**[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Fear not. Join us.
 
 **[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
 
