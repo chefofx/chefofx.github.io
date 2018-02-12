@@ -4,11 +4,11 @@
 
 **[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of concept-illustrations.
 
-**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, posters, stickers** and more!  
-
 **[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* 
 
 **[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** *Join the cult today!*
+
+**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, posters, stickers** and more!  
 
 ![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
 
