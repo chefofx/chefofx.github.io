@@ -8,7 +8,7 @@
 
 **[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Join the cult today!
 
-**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, posters, stickers** and more!  
+**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
 
 ![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
 
