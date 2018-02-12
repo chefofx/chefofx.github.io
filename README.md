@@ -12,8 +12,7 @@
 
 **[Chef(x) Explained](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** clarifies the meaning of 'Chefs' and 'Sheep'. 
 
-![chefsetposter](https://user-images.githubusercontent.com/25256570/34506614-5377a19a-efe3-11e7-9a72-263c69f24d5a.png)
-
+![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
 **Full Mixtapes (+lyrics.)**
 
 - **[Red Sheep](https://soundcloud.com/redchef/sets/red-sheep)** 12/25/17 [**lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)
