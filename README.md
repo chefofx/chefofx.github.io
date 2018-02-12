@@ -14,7 +14,7 @@
 
 ![chefsetposter](https://user-images.githubusercontent.com/25256570/34506614-5377a19a-efe3-11e7-9a72-263c69f24d5a.png)
 
-**FULL Mixtapes BELOW! (+lyrics.)**
+**Full Mixtapes (+lyrics.)**
 
 - **[Red Sheep](https://soundcloud.com/redchef/sets/red-sheep)** 12/25/17 [**lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)
 - **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) 
