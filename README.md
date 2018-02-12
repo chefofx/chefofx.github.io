@@ -4,7 +4,7 @@
 
 **[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of concept-illustrations.
 
-**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** **T-shirts, posters, stickers** and more!  
+**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, posters, stickers** and more!  
 
 **[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of conversations involving *quasi-introspective speculation.* 
 
@@ -16,7 +16,7 @@
 
 **Full Mixtapes (+lyrics.)**
 
-- **[Red Sheep](https://soundcloud.com/redchef/sets/red-sheep)** 12/25/17 [**lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)
+- **[Red Sheep](https://soundcloud.com/redchef/sets/red-sheep)** 2/9/17 [**lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)
 - **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) 
 - **[Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw)** 5/16/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) 
 - **[Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc)** 5/5/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE) 
