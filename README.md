@@ -2,7 +2,7 @@
 
 (Chef(x) = 'chef-of-x.')
 
-**[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of concept-illustrations. *Philosophy+Design.*
+**[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of concept-illustrations.
 
 **[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, posters, stickers** and more! Thank you for your support!  
 
