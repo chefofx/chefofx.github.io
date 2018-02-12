@@ -26,4 +26,4 @@
 
 chefofx@gmail.com
 
-![chef x poster](https://user-images.githubusercontent.com/25256570/36082374-ac363762-0f5d-11e8-9151-8f00200c96b0.png)
+![whitechef x comic](https://user-images.githubusercontent.com/25256570/36082720-cea7478e-0f60-11e8-9c24-e0dabf3edea5.png)
