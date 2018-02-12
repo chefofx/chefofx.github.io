@@ -1,4 +1,4 @@
-![chef x](https://user-images.githubusercontent.com/25256570/34506681-d6f3c80a-efe3-11e7-8b9b-c5ee91219b85.png)
+![tv](https://user-images.githubusercontent.com/25256570/36082331-54da7208-0f5d-11e8-9b21-e8624af65e37.png)
 
 (Chef(x) = 'chef-of-x.')
 
