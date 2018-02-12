@@ -12,14 +12,19 @@
 
 **FULL Mixtapes BELOW! (+lyrics.)**
 
-- **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk) Written in jail and recorded on an iPhone.
-- **[Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP)** 4/13/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) Fresh out, pre-podcast.
-- **[Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc)** 5/5/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE) Each song was written and recorded in a day. 
-- **[Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw)** 5/16/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) Written while *fairly socialized* into school.
-- **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) Summer 2017.
-- **[Red Sheep](https://soundcloud.com/redchef/sets/red-sheep)** 12/25/17 [**lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z) Court graduation, recalibration.
+- **[Red Sheep](https://soundcloud.com/redchef/sets/red-sheep)** 12/25/17 [**lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)
+- **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU) 
+- **[Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw)** 5/16/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA) 
+- **[Dishes4Days.](https://soundcloud.com/redchef/sets/dishes4days/s-NY0Mc)** 5/5/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWc09Yb2tRZndleVE) 
+- **[Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP)** 4/13/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM) 
+- **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk) Written in jail, recorded on an iPhone.
 
-**[The Sheep(x) Yodcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content.)
+
+
+
+
+
+**[The Sheep(x) Yodcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content will be uploaded.)
 
 ![chefsetposter](https://user-images.githubusercontent.com/25256570/34506614-5377a19a-efe3-11e7-9a72-263c69f24d5a.png)
 
