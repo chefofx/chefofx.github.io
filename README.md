@@ -26,3 +26,5 @@
 **[The Sheep(x) Yodcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content will be uploaded.)
 
 chefofx@gmail.com
+
+![chef x poster](https://user-images.githubusercontent.com/25256570/36082374-ac363762-0f5d-11e8-9151-8f00200c96b0.png)
