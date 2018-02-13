@@ -4,7 +4,7 @@
 
 **[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of concept-illustrations.
 
-**[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of introspective conversations. [Podcast Overview.](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc)
+**[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of introspective conversations. [Experimental Setup.](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc)
 
 **[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Fear not. Join us.
 
