@@ -20,9 +20,6 @@
 - **[Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP)** 4/13/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)** 
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
-**[The Sheep(x) Yodcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content will be uploaded.)
-
-
 ![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
 
 **[The Sheep(x) Yodcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1227336978?mt=2)**  is a set of conversations involving *criminally insane stories.* (The 'top' 10 of 50 episodes are available. No new content will be uploaded.)
