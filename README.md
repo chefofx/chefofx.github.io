@@ -6,8 +6,6 @@
 
 **[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of introspective conversations. [Experimental Setup.](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc)
 
-**[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Fear not. Join us.
-
 **[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
 
 ![whitesheep](https://user-images.githubusercontent.com/25256570/36241966-41e02472-11ce-11e8-93cb-11bd932d8cf3.png)
@@ -24,5 +22,7 @@
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 [**lyrics.**](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)
 
 ![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
+
+**[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Fear not. Join us.
 
 chefofx@gmail.com
