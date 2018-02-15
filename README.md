@@ -2,7 +2,7 @@
 
 (Chef(x) = 'chef-of-x.')
 
-**[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of concept-illustrations.
+**[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of [concept](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)-illustrations.
 
 **[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of introspective [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc).
 
@@ -22,7 +22,5 @@
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
 ![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
-
-**[Chef(x)? Explained.](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)** Fear not. Join us.
 
 chefofx@gmail.com
