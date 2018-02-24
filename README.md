@@ -1,6 +1,6 @@
 ![whitechef x](https://user-images.githubusercontent.com/25256570/36082575-a7efeb92-0f5f-11e8-86a8-8b9068a82c5b.png)
 
-                                                        ('chef-of-x')
+('chef-of-x')
 
 **[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of [concept](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)-illustrations.
 
