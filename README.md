@@ -1,11 +1,11 @@
 ![whitechef x](https://user-images.githubusercontent.com/25256570/36082575-a7efeb92-0f5f-11e8-86a8-8b9068a82c5b.png)
 (Chef(x) = 'chef-of-x')
 
-**[Chef(x) Comics](https://www.instagram.com/chefofx/)** is a set of [concept](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)-illustrations.
+Chef(x) **[Comics](https://www.instagram.com/chefofx/)** is a set of [concept](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)-illustrations.
 
-**[The Chef(x) Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of introspective [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc).
+The Chef(x) **[Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of introspective [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc).
 
-**[The Chef(x) Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
+The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
 
 ![whitesheep](https://user-images.githubusercontent.com/25256570/36241966-41e02472-11ce-11e8-93cb-11bd932d8cf3.png)
 
