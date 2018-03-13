@@ -3,7 +3,9 @@
 
 Chef(x) **[Comics](https://www.instagram.com/chefofx/)** is a set of [concept](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)-illustrations.
 
-The Chef(x) **Podcast** is a set of [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc).**[iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** **[iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** **[iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)**
+The Chef(x) **Podcast** is a set of [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc).**[iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** **[Google Play Music](https://play.google.com/music/m/Ij6vqdxz754gkwe3yy24y2zgqha?t=The_Chefx_Podcast)** **[Stitcher Radio](https://www.stitcher.com/podcast/jeanpierrejp-papouloute/the-chefx-podcast)**
+
+<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53642718" width="220" height="150" frameborder="0" scrolling="no"></iframe>
 
 The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
 
