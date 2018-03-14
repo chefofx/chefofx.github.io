@@ -3,9 +3,7 @@
 
 Chef(x) **[Comics](https://www.instagram.com/chefofx/)** is a set of [concept](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)-illustrations.
 
-The Chef(x) **Podcast** is a set of [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc). [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2), [Google Play](https://play.google.com/music/m/Ij6vqdxz754gkwe3yy24y2zgqha?t=The_Chefx_Podcast), [Stitcher](https://www.stitcher.com/s?eid=53642718&autoplay=1).
-
-<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53642718" width="220" height="150" frameborder="0" scrolling="no"></iframe>
+The Chef(x) **[Podcast](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)** is a set of [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc). Search *'Chef(x)'* in iTunes, Google Play or Stitcher to listen.
 
 The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
 
