@@ -14,6 +14,8 @@ The Chef(x) **Podcast** is a set of [conversations](https://drive.google.com/ope
 
 **Red Chef Mixtapes (+lyrics.)**
 
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398129253&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 - **[Red Sheep.](https://soundcloud.com/redchef/sets/red-sheep)** 2/9/18 **[lyrics.](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)**
 - **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU)** 
 - **[Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw)** 5/16/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)** 
