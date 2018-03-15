@@ -30,7 +30,7 @@ The Chef(x) **Podcast** is a set of [conversations](https://drive.google.com/ope
 
 ![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
 
-**Full Red Chef Mixtapes + lyrics.**
+**Full *Red Chef* Mixtapes + lyrics.**
 
 - **[Red Sheep.](https://soundcloud.com/redchef/sets/red-sheep)** 2/9/18 **[lyrics.](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)**
 - **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU)** 
