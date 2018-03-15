@@ -39,4 +39,6 @@ has **T-shirts, stickers, posters** and more!
 - **[Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP)** 4/13/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)** 
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
+**The Sheep(x) Yodcast** is an archive of 10 of the first (50) Chef(x) Podcasts. Search **" *Sheep(x)* "** in iTunes to listen. 
+
 chefofx@gmail.com
