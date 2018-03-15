@@ -7,7 +7,7 @@ Chef(x) **[Comics](https://www.instagram.com/chefofx/)** is a set of [concept](h
 
 The Chef(x) **Podcast** is a set of [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc). **Search 'Chef(x)'** in iTunes, Google Play or Stitcher to listen.
 
-<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53712123" width="150" height="150" frameborder="0" scrolling="no"></iframe>
+<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53712123" width="250" height="150" frameborder="0" scrolling="no"></iframe>
 
 ![whitesheep](https://user-images.githubusercontent.com/25256570/36241966-41e02472-11ce-11e8-93cb-11bd932d8cf3.png)
 
