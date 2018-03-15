@@ -1,13 +1,13 @@
 ![whitechef x](https://user-images.githubusercontent.com/25256570/36082575-a7efeb92-0f5f-11e8-86a8-8b9068a82c5b.png)
 (Chef(x) = 'chef-of-x')
 
-The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more!  
+The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** has **T-shirts, stickers, posters** and more! 
 
 Chef(x) **[Comics](https://www.instagram.com/chefofx/)** is a set of [concept](https://drive.google.com/open?id=0B1Ol8fuZMTCWUVBNRlk0djcxUmc)-illustrations.
 
 The Chef(x) **Podcast** is a set of [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc). Search '*Chef(x)*' in iTunes, Google Play or Stitcher to listen.
 
-<iframe width="100%" height="125" scrolling="no" frameborder="no" allow="autoplay" src="https://app.stitcher.com/splayer/f/165517/53712123"></iframe>
+<iframe width="100%" height="145" scrolling="no" frameborder="no" allow="autoplay" src="https://app.stitcher.com/splayer/f/165517/53712123"></iframe>
 
 <iframe width="100%" height="166" src="https://app.stitcher.com/splayer/f/165517/53712123" width="220" height="150" frameborder="0" scrolling="no"></iframe>
 
