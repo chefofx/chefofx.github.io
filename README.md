@@ -4,7 +4,7 @@
 The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** 
 has **T-shirts, stickers, posters** and more! 
 
-The code is <script type="text/javascript" src="http://www.redbubble.com/assets/external_portfolio.js"></script> <script id="rb-xzfcxvzx" type="text/javascript">new RBExternalPortfolio('https://www.redbubble.com/shop/chefofx', 'joshkoz', 5, 2).renderIframe();</script>
+<script type="text/javascript" src="http://www.redbubble.com/assets/external_portfolio.js"></script> <script id="rb-xzfcxvzx" type="text/javascript">new RBExternalPortfolio('https://www.redbubble.com/shop/chefofx', 'joshkoz', 5, 2).renderIframe();</script>
 
 
 
