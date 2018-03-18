@@ -10,7 +10,7 @@ has **T-shirts, stickers, posters** and more!
 
 ![whitesheep](https://user-images.githubusercontent.com/25256570/36241966-41e02472-11ce-11e8-93cb-11bd932d8cf3.png)
 
-**The Chef(x) Podcast.** Introspection, explanations. Philosophical [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc).
+**The Chef(x) Podcast.** Introspection...explanations...philosophical [conversations](https://drive.google.com/open?id=1jtQQqB3JStUSgmQsr25vVONhywPnRCfc).
 
 <iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53712123" width="100%" height="190" frameborder="0" scrolling="no"></iframe>
 
