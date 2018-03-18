@@ -14,9 +14,6 @@ has **T-shirts, stickers, posters** and more!
 
 ![whitesheep](https://user-images.githubusercontent.com/25256570/36241966-41e02472-11ce-11e8-93cb-11bd932d8cf3.png)
 
-<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398141259&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
-
-
 **Full "*Red Chef* " Mixtapes + lyrics.**
 
 - **[Red Sheep.](https://soundcloud.com/redchef/sets/red-sheep)** 2/9/18 **[lyrics.](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)**
@@ -26,8 +23,10 @@ has **T-shirts, stickers, posters** and more!
 - **[Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP)** 4/13/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)** 
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
-**The Sheep(x) Yodcast** is an archive of 10 of the first (50) Chef(x) Podcasts. Search **" *Sheep(x)* "** in iTunes to listen. 
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398141259&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
 ![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
+
+**The Sheep(x) Yodcast** is an archive of 10 of the first (50) Chef(x) Podcasts. Search **" *Sheep(x)* "** in iTunes to listen. 
 
 chefofx@gmail.com
