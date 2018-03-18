@@ -12,7 +12,7 @@ has **T-shirts, stickers, posters** and more!
 
 <iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53712123" width="100%" height="190" frameborder="0" scrolling="no"></iframe>
 
-Search **" *Chef(x)* "** in iTunes, Google Play or Stitcher to listen.
+Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
 ![whitesheep](https://user-images.githubusercontent.com/25256570/36241966-41e02472-11ce-11e8-93cb-11bd932d8cf3.png)
 
