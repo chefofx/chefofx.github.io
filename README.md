@@ -16,7 +16,6 @@ has **T-shirts, stickers, posters** and more!
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398141259&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
-![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
 
 **Full "*Red Chef* " Mixtapes + lyrics.**
 
@@ -28,5 +27,7 @@ has **T-shirts, stickers, posters** and more!
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
 **The Sheep(x) Yodcast** is an archive of 10 of the first (50) Chef(x) Podcasts. Search **" *Sheep(x)* "** in iTunes to listen. 
+
+![whitechefset](https://user-images.githubusercontent.com/25256570/36082661-51e174cc-0f60-11e8-9359-3e7ca0143748.png)
 
 chefofx@gmail.com
