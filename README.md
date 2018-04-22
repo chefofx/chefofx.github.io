@@ -16,7 +16,8 @@ has **T-shirts, stickers, posters** and more!
 
 Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
-![chefset2wposter](https://user-images.githubusercontent.com/25256570/39098786-c8da52ec-4624-11e8-8a8f-869f3187862d.png)
+![chefset3poster](https://user-images.githubusercontent.com/25256570/39099238-f7509bde-462b-11e8-825c-56626a98d24c.png)
+
 **Full "*Red Chef* " Mixtapes + lyrics.**
 
 - **[Red Sheep.](https://soundcloud.com/redchef/sets/red-sheep/s-SK4K5)** 2/9/18 **[lyrics.](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)**
