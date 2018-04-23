@@ -16,7 +16,7 @@ has **T-shirts, stickers, posters** and more!
 
 Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
-![chefset3poster](https://user-images.githubusercontent.com/25256570/39099238-f7509bde-462b-11e8-825c-56626a98d24c.png)
+![chefset3poster](https://user-images.githubusercontent.com/25256570/39101457-ded6a0f8-464e-11e8-959c-5e17c52778e7.png)
 
 **Full "*Red Chef* " Mixtapes + lyrics.**
 
