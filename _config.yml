@@ -1,2 +1,2 @@
 theme: jekyll-theme-minimal
-title: r(t) < r(0)
+title: forall t, there exists M l rM(t) < rM(0)
