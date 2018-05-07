@@ -12,12 +12,7 @@ has **T-shirts, stickers, posters** and more!
 
 **The Chef(x) Podcast.** Introspection...explanations...[conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
-<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53712123" width="100%" height="190" frameborder="0" scrolling="no"></iframe>
-
-[![Watch the video](Youtube.png)](https://youtu.be/aDfl33sRo-s)
-
 <iframe width="560" height="315" src="https://www.youtube.com/embed/znsm-AFUwCk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-
 
 Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
