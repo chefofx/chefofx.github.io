@@ -14,6 +14,9 @@ has **T-shirts, stickers, posters** and more!
 
 <iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/53712123" width="100%" height="190" frameborder="0" scrolling="no"></iframe>
 
+[![Watch the video](Youtube.png)](https://youtu.be/aDfl33sRo-s)
+
+
 Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
 ![chefset3poster](https://user-images.githubusercontent.com/25256570/39135171-33733242-46cd-11e8-8273-073eb57f7419.png)
