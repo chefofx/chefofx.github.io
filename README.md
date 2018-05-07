@@ -1,4 +1,4 @@
-![whitechef x](https://user-images.githubusercontent.com/25256570/36082575-a7efeb92-0f5f-11e8-86a8-8b9068a82c5b.png)
+![redchef x poster](https://user-images.githubusercontent.com/25256570/39730165-efdd2ee0-5214-11e8-95ce-336c2864a8c8.png)
 (Chef(x) = 'chef-of-x')
 
 The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** 
