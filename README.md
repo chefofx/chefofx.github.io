@@ -27,8 +27,7 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 - **[Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP)** 4/13/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)** 
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
-<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/323152842%3Fsecret_token%3Ds-Lrbqe&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
-
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398136147&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
 <iframe width="100%" height="195" src="https://www.youtube.com/embed/Yt2Ap89thP0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
