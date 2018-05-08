@@ -1,4 +1,4 @@
-chefofx@gmail.com.     chefofx = CHEF of 'x' = Chef(x).      **[Merch?](https://www.redbubble.com/shop/chefofx)**
+chefofx@gmail.com.     chefofx = Chef of 'x' = Chef(x).      **[Merch?](https://www.redbubble.com/shop/chefofx)**
 ![whitesheepposter](https://user-images.githubusercontent.com/25256570/39098511-d556178a-4620-11e8-8b39-ca2486be8e55.png)
 
 
