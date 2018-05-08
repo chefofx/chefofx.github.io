@@ -15,6 +15,8 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
 **Full "*Red Chef* " Mixtapes + lyrics.**
 
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398136147&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 - **[Red Sheep.](https://soundcloud.com/redchef/sets/red-sheep/s-SK4K5)** 2/9/18 **[lyrics.](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)**
 - **[Implicit.](https://soundcloud.com/redchef/sets/implicit/s-tvWII)** 7/28/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWam4zdm5sbFlvRUU)** 
 - **[Focused Erosion.](https://soundcloud.com/redchef/sets/focused-erosion/s-pihsw)** 5/16/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWVNQdXd2ZndiaDA)** 
@@ -22,7 +24,6 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 - **[Evans Cheffin.](https://soundcloud.com/redchef/sets/evans-cheffin/s-5ctrP)** 4/13/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWWS1OUHptcEN4aWM)** 
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
-<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398136147&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
 **The Sheep(x) Yodcast** is an archive of 10 of the first (50) Chef(x) Podcasts. Search **"*Sheep(x)*"** in iTunes to listen. 
 
