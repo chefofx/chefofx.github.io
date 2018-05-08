@@ -1,4 +1,4 @@
-Chef(x) = 'chef of x'
+Chef(x) = 'chef of x' **[Store?](https://www.redbubble.com/shop/chefofx)** 
 ![whitesheepposter](https://user-images.githubusercontent.com/25256570/39098511-d556178a-4620-11e8-8b39-ca2486be8e55.png)
 
 
@@ -25,10 +25,5 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
 ![chefset3poster](https://user-images.githubusercontent.com/25256570/39135171-33733242-46cd-11e8-8273-073eb57f7419.png)
-
-
-The Chef(x) **[Store](https://www.redbubble.com/shop/chefofx)** 
-has **T-shirts, stickers, posters** and more! 
-
 
 chefofx@gmail.com
