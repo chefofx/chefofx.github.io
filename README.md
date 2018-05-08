@@ -1,6 +1,6 @@
-
+Chef(x) = 'chef of x'
 ![whitesheepposter](https://user-images.githubusercontent.com/25256570/39098511-d556178a-4620-11e8-8b39-ca2486be8e55.png)
-(Chef(x) = 'chef-of-x')
+
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
