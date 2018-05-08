@@ -1,5 +1,5 @@
 chefofx@gmail.com.     chefofx = Chef of 'x' = Chef(x).      **[Merch?](https://www.redbubble.com/shop/chefofx)**
-![darksheepposter](https://user-images.githubusercontent.com/25256570/39770630-6bcdad4c-52a4-11e8-98ac-5ee509629e1a.png)
+![whitesheepposter](https://user-images.githubusercontent.com/25256570/39770742-bf5b2db8-52a4-11e8-84e1-6f4429b79b26.png)
 
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
