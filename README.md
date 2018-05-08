@@ -29,8 +29,6 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398136147&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
-<iframe width="100%" height="195" src="https://www.youtube.com/embed/Yt2Ap89thP0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-
 **The Sheep(x) Yodcast** is an archive of 10 of the first (50) Chef(x) Podcasts. Search **"*Sheep(x)*"** in iTunes to listen. 
 
 chefofx@gmail.com
