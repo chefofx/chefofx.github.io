@@ -25,5 +25,3 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 - **[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)** 3/24/17 **[lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)**
 
 ![chefset3poster](https://user-images.githubusercontent.com/25256570/39135171-33733242-46cd-11e8-8273-073eb57f7419.png)
-
-chefofx@gmail.com
