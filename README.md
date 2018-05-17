@@ -17,7 +17,7 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/398136147&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
-- [Red Sheep **lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)** [Red Sheep.](https://soundcloud.com/redchef/sets/red-sheep/s-SK4K5) 2/9/18 
+- [Red Sheep **lyrics.**](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z) [Red Sheep.](https://soundcloud.com/redchef/sets/red-sheep/s-SK4K5) 2/9/18 
 - **[Elmwood Recipes lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)** *[Elmwood Recipes.](https://soundcloud.com/redchef/sets/elmwood-recipes/s-4d0MH)* 3/24/17 
 
 ![chefset3poster](https://user-images.githubusercontent.com/25256570/39135171-33733242-46cd-11e8-8273-073eb57f7419.png)
