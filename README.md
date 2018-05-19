@@ -1,4 +1,4 @@
-chefofx@gmail.com.    **[Chef Set?](https://drive.google.com/open?id=1WeZ5Bkl3vJlhnvqeAUoulckrauTx9SdB)**   **[Merch?](https://www.redbubble.com/shop/chefofx)**
+chefofx@gmail.com    [Chef Set?](https://drive.google.com/open?id=1WeZ5Bkl3vJlhnvqeAUoulckrauTx9SdB)   **[Merch?](https://www.redbubble.com/shop/chefofx)**
 ![whitesheepposter](https://user-images.githubusercontent.com/25256570/39770742-bf5b2db8-52a4-11e8-84e1-6f4429b79b26.png) 
 
 
