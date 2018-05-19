@@ -10,7 +10,7 @@ Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
-**["*Red Chef* "](http://soundcloud.com/redchef) Mixtapes.
+**["*Red Chef* "](http://soundcloud.com/redchef) Mixtapes.**
 
 - **[Red Sheep lyrics.](https://drive.google.com/open?id=1L0DXyAscYHFnqYgvJ5aMnPRHvZZo1k9Z)** 2/9/18 
 
