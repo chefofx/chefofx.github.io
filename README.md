@@ -6,7 +6,7 @@ chefofx@gmail.com     **[Merch?](https://www.redbubble.com/shop/chefofx)** *[Phy
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
 <iframe width="100%" height="170" src="https://www.youtube.com/embed/znsm-AFUwCk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-Search **"*Chef(x)*"** in iTunes, Google Play or Stitcher to listen.
+Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)*"** in iTunes, Google Play or Stitcher to listen.
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
