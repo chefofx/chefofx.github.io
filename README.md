@@ -1,6 +1,5 @@
 ![whitesheepposter](https://user-images.githubusercontent.com/25256570/39770742-bf5b2db8-52a4-11e8-84e1-6f4429b79b26.png) 
-
-[Chef Set?](https://drive.google.com/open?id=1WeZ5Bkl3vJlhnvqeAUoulckrauTx9SdB) 
+**[Unexplained.](https://drive.google.com/open?id=1z4-XoOn3vR_dpVYp-v6Rj7WZsoWcM33W)**
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
@@ -13,6 +12,10 @@ Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
 **[Red Chef](http://soundcloud.com/redchef) Mixtapes.**
+
+- **[Purple lyrics.](https://drive.google.com/open?id=1_YR8wGqRdedxy_anYZOuieJR_ql7GDEc)** 7/13/18
+
+<iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/560981526%3Fsecret_token%3Ds-eRsvv&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
 - **[Red Sheep lyrics.](https://drive.google.com/open?id=1SyECQnNOmCACNKMGUXT5yASZmO7LEij5)** 2/9/18 
 
@@ -30,5 +33,5 @@ Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13
 
 chefofx@gmail.com    
 
-**[Unexplained.](https://drive.google.com/open?id=1z4-XoOn3vR_dpVYp-v6Rj7WZsoWcM33W)**
+[Chef Set?](https://drive.google.com/open?id=1WeZ5Bkl3vJlhnvqeAUoulckrauTx9SdB) 
 
