@@ -3,7 +3,7 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
-<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/55324955" width="220" height="150" frameborder="0" scrolling="no"></iframe>
+<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/55324955" width="100%" height="150" frameborder="0" scrolling="no"></iframe>
 
 Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)*"** in iTunes, Google Play or Stitcher to listen.
 
