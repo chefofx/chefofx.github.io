@@ -1,5 +1,5 @@
 ![whitesheepposter](https://user-images.githubusercontent.com/25256570/39770742-bf5b2db8-52a4-11e8-84e1-6f4429b79b26.png) 
-**[Unexplained.](https://drive.google.com/open?id=1z4-XoOn3vR_dpVYp-v6Rj7WZsoWcM33W)**
+**[Skill Spaces](https://drive.google.com/open?id=1ffbTo0sS1IyEJdR5TSClsP1QL5A6lnbw)**
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
@@ -13,10 +13,6 @@ Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13
 
 **[Red Chef](http://soundcloud.com/redchef) Mixtapes.**
 
-- **[Purple lyrics.](https://drive.google.com/open?id=1_YR8wGqRdedxy_anYZOuieJR_ql7GDEc)** 7/13/18
-
-<iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/560981526%3Fsecret_token%3Ds-eRsvv&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
-
 - **[Elmwood Recipes lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)** 3/24/17 
 
 <iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/323890999%3Fsecret_token%3Ds-4d0MH&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
@@ -29,5 +25,5 @@ Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13
 
 chefofx@gmail.com    
 
-[Chef Set?](https://drive.google.com/open?id=1WeZ5Bkl3vJlhnvqeAUoulckrauTx9SdB) 
+**[Unexplained.](https://drive.google.com/open?id=1z4-XoOn3vR_dpVYp-v6Rj7WZsoWcM33W)**
 
