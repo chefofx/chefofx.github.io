@@ -1,5 +1,5 @@
 ![whitesheepposter](https://user-images.githubusercontent.com/25256570/39770742-bf5b2db8-52a4-11e8-84e1-6f4429b79b26.png) 
-**[Skill Spaces](https://drive.google.com/open?id=1ffbTo0sS1IyEJdR5TSClsP1QL5A6lnbw)**
+**[Skill Spaces: The Mathematics of Chefs and Sheep.](https://drive.google.com/open?id=1ffbTo0sS1IyEJdR5TSClsP1QL5A6lnbw)**
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
