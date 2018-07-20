@@ -1,4 +1,4 @@
-Click the **[bold blue words](https://user-images.githubusercontent.com/25256570/43028094-a72f8dac-8c32-11e8-9b36-9afc7361aec3.png)** to *unleash more content!
+Click the **[bold blue words](https://user-images.githubusercontent.com/25256570/43028094-a72f8dac-8c32-11e8-9b36-9afc7361aec3.png)** to *unleash more content!*
 
 ![redwhitesheep](https://user-images.githubusercontent.com/25256570/42920338-f096679a-8aca-11e8-8cca-65c87faaad03.png)
 **[Skill Spaces: The Mathematics of Chefs and Sheep.](https://drive.google.com/open?id=1ffbTo0sS1IyEJdR5TSClsP1QL5A6lnbw)**
