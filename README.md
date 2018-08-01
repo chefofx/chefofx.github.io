@@ -5,7 +5,7 @@ Click the **[bold blue words](https://user-images.githubusercontent.com/25256570
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
-<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/54274675" width="100%" height="185" frameborder="0" scrolling="no"></iframe>
+<iframe style="border: solid 1px #dedede;"  src="https://app.stitcher.com/splayer/f/165517/54731803" width="100%" height="185" frameborder="0" scrolling="no"></iframe>
 
 Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)*"** in iTunes, Google Play or Stitcher to listen.
 
