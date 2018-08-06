@@ -13,7 +13,7 @@ Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13
 
 **[Red Chef](http://soundcloud.com/redchef) Mixtapes.**
 
-- **['Purple' lyrics.](https://drive.google.com/open?id=1_YR8wGqRdedxy_anYZOuieJR_ql7GDEc)** 8/5/18
+- **["Purple" lyrics.](https://drive.google.com/open?id=1_YR8wGqRdedxy_anYZOuieJR_ql7GDEc)** 8/5/18
 
 <iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/575824512&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
