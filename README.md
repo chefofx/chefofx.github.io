@@ -9,8 +9,6 @@ Click the **[bold blue words](https://user-images.githubusercontent.com/25256570
 
 Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)*"** in iTunes, Google Play or Stitcher to listen.
 
-<iframe width="100%" height="170" src="https://www.youtube.com/embed/znsm-AFUwCk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
 **[Red Chef](http://soundcloud.com/redchef) Mixtapes.**
