@@ -15,9 +15,11 @@ Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13
 
 **[Red Chef](http://soundcloud.com/redchef) Mixtapes.**
 
+- **['Purple' lyrics.](https://drive.google.com/open?id=1_YR8wGqRdedxy_anYZOuieJR_ql7GDEc)** 8/5/18
+
 <iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/575824512&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
-- **[Elmwood Recipes lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)** 3/24/17 
+- **['Elmwood Recipes' lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)** 3/24/17 
 
 <iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/323890999%3Fsecret_token%3Ds-4d0MH&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
