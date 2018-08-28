@@ -1,7 +1,7 @@
 Click the **[bold blue words](https://user-images.githubusercontent.com/25256570/43028094-a72f8dac-8c32-11e8-9b36-9afc7361aec3.png)** to *unleash more content!*
 
 ![redwhitesheep](https://user-images.githubusercontent.com/25256570/42920338-f096679a-8aca-11e8-8cca-65c87faaad03.png)
-**[On Chefs & Sheep: The Math behind the Madness.](https://drive.google.com/open?id=1P8LX82BNVWch2-tPEpxUCdNQ1CmH5jbx)**
+**[Chef Sets](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)**
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
