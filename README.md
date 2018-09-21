@@ -3,19 +3,19 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
-<iframe width="100%" height="250" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-
-<iframe width="100%" height="260" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-
-<iframe width="100%" height="270" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
-
 <iframe width="100%" height="280" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-<iframe width="100%" height="290" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="100%" height="281" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-<iframe width="100%" height="300" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="100%" height="282" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-<iframe width="100%" height="310" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe width="100%" height="283" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
+<iframe width="100%" height="284" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
+<iframe width="100%" height="285" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+
+<iframe width="100%" height="286" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)*"** in iTunes, Spotify, Google Play or Stitcher Radio to listen. Youtube?
 
