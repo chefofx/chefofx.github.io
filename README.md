@@ -5,7 +5,7 @@
 
 <iframe width="100%" height="281" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)*"** in iTunes, Spotify, YouTube, Google Play or Stitcher Radio to listen. 
+Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)*"** in iTunes, YouTube, Spotify, Google Play or Stitcher Radio. 
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
