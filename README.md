@@ -5,11 +5,11 @@
 
 <iframe width="100%" height="281" src="https://www.youtube-nocookie.com/embed/cEsr9s4ne6s?rel=0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-Search "[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)" in iTunes, YouTube, Spotify, Google Play or Stitcher Radio. 
+Search "[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)" in iTunes, Spotify, Google Play, Stitcher Radio or YouTube. 
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
-**Elmwood Recipes.**
+**Elmwood Recipes.** The original Red Chef Mixtape.
 
 <iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/323890999%3Fsecret_token%3Ds-4d0MH&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
