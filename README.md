@@ -11,7 +11,7 @@ Search **"*[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13
 
 <iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/323890999%3Fsecret_token%3Ds-4d0MH&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
-- **["Elmwood Recipes" lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)** 12/23/16
+**["Elmwood Recipes" lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)** 12/23/16
 
 ![chefset3poster](https://user-images.githubusercontent.com/25256570/39135171-33733242-46cd-11e8-8273-073eb57f7419.png)
 
