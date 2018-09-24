@@ -9,7 +9,7 @@ Search "[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id13041
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
-**Elmwood Recipes.** The Original Red Chef Mixtape.
+**Elmwood Recipes.** The Original 'Red Chef' Mixtape.
 
 <iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/323890999%3Fsecret_token%3Ds-4d0MH&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
