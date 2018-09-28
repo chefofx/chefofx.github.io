@@ -1,4 +1,3 @@
-![idealchef](https://user-images.githubusercontent.com/25256570/46231191-daf9b300-c31f-11e8-9629-40358c5b1c4e.png)
 ![screenshot 33](https://user-images.githubusercontent.com/25256570/46231469-eef1e480-c320-11e8-853a-cc223b33072b.png)
 
 [**Chef Sets.** (The Grand Unified Theory of Chefs.)](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)
