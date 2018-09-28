@@ -1,4 +1,4 @@
-![redwhitesheep](https://user-images.githubusercontent.com/25256570/42920338-f096679a-8aca-11e8-8cca-65c87faaad03.png)
+![tvart2](https://user-images.githubusercontent.com/25256570/46230715-46db1c00-c31e-11e8-916c-ab6ea052c184.png)
 [**Chef Sets.** (The Grand Unified Theory of Chefs.)](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)
 
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
