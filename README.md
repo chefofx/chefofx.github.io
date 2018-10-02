@@ -1,14 +1,14 @@
 ![chefxtv](https://user-images.githubusercontent.com/25256570/46331343-4e275180-c5cc-11e8-8a54-80448d726d4e.png)
 
-[**Chef Sets.** (The Grand Unified Theory of Chefs.)](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)
-
-![screenshot 33](https://user-images.githubusercontent.com/25256570/46231469-eef1e480-c320-11e8-853a-cc223b33072b.png)
-
 **The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
 
 <iframe width="100%" height="281" src="https://www.youtube.com/embed/R67_GrsSz_c?rel=0&amp;start=3148" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
 Search "[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)" in iTunes, Spotify, Google Play, Stitcher Radio or YouTube. 
+
+![screenshot 33](https://user-images.githubusercontent.com/25256570/46231469-eef1e480-c320-11e8-853a-cc223b33072b.png)
+
+[**Chef Sets.** (The Grand Unified Theory of Chefs.)](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
