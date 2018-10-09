@@ -4,7 +4,7 @@
 
 <iframe width="100%" height="281" src="https://www.youtube.com/embed/Mmbpft8PIjo?start=3601" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-Search "[Chef(x)](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2)" in iTunes, Spotify, Google Play, Stitcher Radio or YouTube. 
+Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Spotify, YouTube, Itunes, Google Play, or Stitcher Radio. 
 
 ![screenshot 33](https://user-images.githubusercontent.com/25256570/46231469-eef1e480-c320-11e8-853a-cc223b33072b.png)
 
