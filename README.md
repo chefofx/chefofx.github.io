@@ -1,6 +1,6 @@
 ![chefxtv](https://user-images.githubusercontent.com/25256570/46331343-4e275180-c5cc-11e8-8a54-80448d726d4e.png)
 
-**The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/open?id=1xFDuPz7o5kMe-fPK4tK6XE4HvhEHOSNB).
+**The Chef(x) Podcast.** Introspection, explanations, [conversations](https://drive.google.com/file/d/1ZPH4ZxovFNlJJqgWvSvpEzjIf1xgrJ1r/view?usp=sharing).
 
 <iframe width="100%" height="281" src="https://www.youtube.com/embed/Mmbpft8PIjo?start=3601" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
