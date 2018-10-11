@@ -8,7 +8,7 @@ Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Spot
 
 ![screenshot 33](https://user-images.githubusercontent.com/25256570/46231469-eef1e480-c320-11e8-853a-cc223b33072b.png)
 
-[**Chef Sets.** (The Grand Unified Theory of Chefs.)](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)
+[**Chef Sets.** A Set Theory description of Chefs and Sheep.](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
