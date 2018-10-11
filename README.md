@@ -4,7 +4,7 @@
 
 <iframe width="100%" height="281" src="https://www.youtube.com/embed/Mmbpft8PIjo?start=3601" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 
-Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Spotify, YouTube and Itunes. 
+Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Spotify, Itunes and YouTube. 
 
 ![screenshot 33](https://user-images.githubusercontent.com/25256570/46231469-eef1e480-c320-11e8-853a-cc223b33072b.png)
 
