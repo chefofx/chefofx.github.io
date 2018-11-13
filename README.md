@@ -1,4 +1,5 @@
-![chefxtv](https://user-images.githubusercontent.com/25256570/46331343-4e275180-c5cc-11e8-8a54-80448d726d4e.png)
+![screenshot 2](https://user-images.githubusercontent.com/25256570/48439875-4070fa00-e73c-11e8-801f-da4ffa9aef01.png)
+
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations. [FAQ.](https://drive.google.com/file/d/1ZPH4ZxovFNlJJqgWvSvpEzjIf1xgrJ1r/view?usp=sharing)
 
