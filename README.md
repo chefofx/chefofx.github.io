@@ -7,10 +7,6 @@
 
 Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Spotify, Itunes and YouTube. 
 
-![screenshot 33](https://user-images.githubusercontent.com/25256570/46231469-eef1e480-c320-11e8-853a-cc223b33072b.png)
-
-[**Meal Sets.** The Grand Unified Theory (of Chefs).](https://drive.google.com/open?id=1-tkgPGxom5INYhoWX9om8su0EiBF9j2B)
-
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
 **Elmwood Recipes.** The Original 'Red Chef' Mixtape. 12/23/16. [Lyrics.](https://drive.google.com/open?id=0B1Ol8fuZMTCWaldOV2ZYYVlyRlk)
