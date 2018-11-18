@@ -1,6 +1,4 @@
-![screenshot 2](https://user-images.githubusercontent.com/25256570/48439875-4070fa00-e73c-11e8-801f-da4ffa9aef01.png)
 ![screenshot 4](https://user-images.githubusercontent.com/25256570/48677028-d2557a00-eb23-11e8-8ae7-8e22b6e33cb3.png)
-
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations. [FAQ.](https://drive.google.com/file/d/1ZPH4ZxovFNlJJqgWvSvpEzjIf1xgrJ1r/view?usp=sharing)
 
