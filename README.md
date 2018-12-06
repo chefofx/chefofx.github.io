@@ -2,7 +2,7 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations. [FAQ.](https://drive.google.com/file/d/1ZPH4ZxovFNlJJqgWvSvpEzjIf1xgrJ1r/view?usp=sharing)
 
-<iframe width="100%" height="281" src="https://www.youtube.com/embed/kXh6flvTQ-s?start=700" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="281" src="https://www.youtube-nocookie.com/embed/zy_0lqM3Sso" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Spotify, Itunes and YouTube. 
 
