@@ -12,7 +12,7 @@ Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Itun
 
 ![redchefposter](https://user-images.githubusercontent.com/25256570/39739157-4cfa4b88-5244-11e8-8506-4dbd481ecd7d.png)
 
-**Red Chef(x) Music** Problematic poetry. [Lyrics.](https://drive.google.com/open?id=1Sj6nZy3wBQIof2gkFTMCYHRsXHYc6hrP)
+**Red Chef(x) Music.** Problematic poetry. [Lyrics.](https://drive.google.com/open?id=1Sj6nZy3wBQIof2gkFTMCYHRsXHYc6hrP)
 <iframe width="100%" height="350" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/660140076&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
 
