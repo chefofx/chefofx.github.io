@@ -1,5 +1,4 @@
 ![screenshot 4](https://user-images.githubusercontent.com/25256570/48677028-d2557a00-eb23-11e8-8ae7-8e22b6e33cb3.png)
-[Old Essays/Proofs/Derivations!](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
@@ -14,5 +13,4 @@ Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Itun
 **Red Chef(x) Music.** Problematic poetry. [Lyrics.](https://drive.google.com/open?id=1Sj6nZy3wBQIof2gkFTMCYHRsXHYc6hrP)
 <iframe width="100%" height="350" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/660140076&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
-[Unexplained.](https://drive.google.com/open?id=1z4-XoOn3vR_dpVYp-v6Rj7WZsoWcM33W)
-chefofx@gmail.com    
+[Unexplained.](https://drive.google.com/open?id=1z4-XoOn3vR_dpVYp-v6Rj7WZsoWcM33W) [**Click for Old Papers with Proofs/Derivations!**](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) chefofx@gmail.com    
