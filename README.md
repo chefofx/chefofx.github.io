@@ -1,4 +1,5 @@
 ![screenshot 4](https://user-images.githubusercontent.com/25256570/48677028-d2557a00-eb23-11e8-8ae7-8e22b6e33cb3.png)
+[Old Essays/Proofs/Derivations!](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
