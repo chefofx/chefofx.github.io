@@ -1,7 +1,4 @@
-![screenshot 4](https://user-images.githubusercontent.com/25256570/48677028-d2557a00-eb23-11e8-8ae7-8e22b6e33cb3.png)
-![gut1 2](https://user-images.githubusercontent.com/25256570/50060036-5b6fc900-0143-11e9-8c46-56b90f02afc1.png)
 ![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
-![gut1 0](https://user-images.githubusercontent.com/25256570/50060047-6aef1200-0143-11e9-86b5-438500eee39b.png)
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
