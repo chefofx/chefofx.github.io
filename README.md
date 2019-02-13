@@ -1,4 +1,5 @@
 ![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
+[Chef Sets.](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5)
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
