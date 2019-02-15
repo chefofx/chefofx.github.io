@@ -3,13 +3,7 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
-Showing player controls:
-
 <iframe width="560" height="281" src="https://www.youtube.com/embed/FyB17jkAxR8" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-Not showing player controls:
-
-<iframe width="560" height="281" src="https://www.youtube.com/embed/FyB17jkAxR8?controls=0" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Itunes and Spotify. 
 
