@@ -8,7 +8,7 @@
 
 Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Itunes and Spotify. 
 
-**Red Chef Music.** [SoundCloud](https://soundcloud.com/redchef/sets/2a-1) + [Boring Poetry](https://drive.google.com/open?id=1Og2BeI0xONxgnnGgfncr1qVHWEH3uoef)
+**Red Chef Music.** [SoundCloud](https://soundcloud.com/redchef/sets/2a-1) + [Boring Poetry](https://drive.google.com/open?id=1Og2BeI0xONxgnnGgfncr1qVHWEH3uoef).
 
 **Chef(x) Comics.** Conceptual illustrations. Shouts out to the Chef Set.
 
