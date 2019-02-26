@@ -9,6 +9,8 @@ Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Itun
 
 **Red Chef Music.** [Rapity-Raps](https://soundcloud.com/redchef/albums) + [Rapity-Rap Lyrics](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
+<iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/709641285&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 [**Chef(x) Comics.**](https://www.instagram.com/chefofx/?hl=en) Conceptual illustrations since 2015. 
 
 ![orientationgit_004pin_4](https://user-images.githubusercontent.com/25256570/53441334-71a7ca00-39bb-11e9-9a72-e33cc9e06a6e.png)
