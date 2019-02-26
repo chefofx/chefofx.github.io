@@ -9,7 +9,7 @@
 
 Search "[Chef(x)](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M)" in Itunes and Spotify. 
 
-**Red Chef Music.** [SoundCloud](https://soundcloud.com/redchef/sets/2a-1) + [Boring Poetry](https://drive.google.com/open?id=1Og2BeI0xONxgnnGgfncr1qVHWEH3uoef).
+**Red Chef Music.** [SoundCloud](https://soundcloud.com/redchef/albums) + [Rapity-Rap Lyrics](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
 **Chef(x) Comics.** Conceptual illustrations since 2015. 
 
