@@ -7,7 +7,7 @@
 
 Search "Chef(x)" in [Itunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2), [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M) and [YouTube](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) to listen and subscribe. [Videos?!](https://www.youtube.com/playlist?list=PLpf-EegYnknSY97yiky58ZRryyURuNG_m) Also, 10 of the first 50 preliminary episodes are available as 'The Sheep(x) Yodcast' on iTunes. Trigger Warning. 
 
-**Red Chef Music.** [Rapity-Raps](https://soundcloud.com/redchef/albums) + [Rapity-Rap Lyrics](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
+**Red Chef Music.** [Rapity-Raps](https://soundcloud.com/redchef/albums) + [Lyrics](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
 <iframe width="100%" height="600" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/709641285&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
 
