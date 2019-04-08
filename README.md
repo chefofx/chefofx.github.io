@@ -3,9 +3,9 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="500" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<iframe width="100%" height="415" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="507" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <iframe width="100%" height="515" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
