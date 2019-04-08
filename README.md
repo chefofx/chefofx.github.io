@@ -3,11 +3,11 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
-<iframe width="100%" height="500" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="480" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<iframe width="100%" height="507" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="460" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<iframe width="100%" height="515" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="440" src="https://www.youtube.com/embed/4EL7Mie62OE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
 Search "Chef(x)" in [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2), [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M) and [YouTube](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) to listen and subscribe.  
