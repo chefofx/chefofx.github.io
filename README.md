@@ -5,7 +5,7 @@
 
 <iframe width="100%" height="470" src="https://www.youtube.com/embed/aU7i5d3CXcE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-Search "Chef(x)" in [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2), [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M) and [YouTube](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) to listen and subscribe.  
+[Listen to Full (Audio) Episodes HERE.](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) Search "Chef(x)" in [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M) to listen and subscribe.  
 
 **Red Chef Music.** [Rapity-Raps](https://soundcloud.com/redchef/albums) + [Lyrics](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
