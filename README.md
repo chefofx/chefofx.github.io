@@ -16,6 +16,4 @@
 
 ![Conformity_005Pin_4](https://user-images.githubusercontent.com/25256570/56599673-e35f5700-65ab-11e9-970d-19f61118cd21.png)
 
-![orientationgit_004pin_4](https://user-images.githubusercontent.com/25256570/53441334-71a7ca00-39bb-11e9-9a72-e33cc9e06a6e.png)
-
 chefofx@gmail.com    
