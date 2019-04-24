@@ -14,6 +14,6 @@
 
 [**Chef(x) Comics.**](https://www.instagram.com/chefofx/?hl=en) Conceptual illustrations since 2015. 
 
-![Conformity_005Pin_4](https://user-images.githubusercontent.com/25256570/56599673-e35f5700-65ab-11e9-970d-19f61118cd21.png)
+![Conformity_005Pin_4L](https://user-images.githubusercontent.com/25256570/56638038-f6147300-6621-11e9-9755-08bc91baad7e.png)
 
 chefofx@gmail.com    
