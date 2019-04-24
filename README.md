@@ -7,7 +7,7 @@
 
 [Listen to Full (Audio) Episodes HERE.](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) Search "Chef(x)" in [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) or [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M) to subscribe.  
 
-**Red Chef Music.** Old School Hip-Hop, Trap Shit, and Poetry. [Mixtapes](https://soundcloud.com/redchef/albums) + [Lyrics](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
+**Red Chef Music.** Old School Hip-Hop, Trap Shit and Poetry. [Mixtapes](https://soundcloud.com/redchef/albums) + [Lyrics](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
 
 <iframe width="100%" height="470" src="https://www.youtube-nocookie.com/embed/_1yFLKZ7sPQ" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
