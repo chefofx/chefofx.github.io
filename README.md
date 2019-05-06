@@ -11,7 +11,7 @@
 
 <iframe width="100%" height="470" src="https://www.youtube.com/embed/G5UGMCzJHnw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-**Chef(x) Comics.** Conceptual illustrations since 2015. [CLICK HERE to VIEW my DOODLES](https://www.instagram.com/chefofx/?hl=en)
+**Chef(x) Comics.** Conceptual illustrations since 2015. [CLICK HERE to VIEW my DOODLES](https://www.instagram.com/chefofx/?hl=en)!
 
 ![Conformity_005Pin_4LL_006Pin_6LLL](https://user-images.githubusercontent.com/25256570/56638453-185ac080-6623-11e9-8700-b782bb5c51ee.png)
 
