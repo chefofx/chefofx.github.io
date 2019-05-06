@@ -5,7 +5,7 @@
 
 <iframe width="100%" height="470" src="https://www.youtube.com/embed/K3UeCKaI3dk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-You can listen to [FULL PODCASTS on YouTube](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) or subscribe to the podcast on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
+[CLICK HERE to LISTEN to FULL PODCASTS on YouTube](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) or subscribe to the podcast on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
 
 **Red Chef Music.** Trap Shit + Poetry. [CLICK HERE to LISTEN to MIXTAPES](https://soundcloud.com/redchef/albums). [CLICK HERE to READ LYRICS](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
