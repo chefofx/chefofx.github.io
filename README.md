@@ -3,6 +3,8 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
+<iframe src="https://pinecast.com/player/5c6b7578-37f0-4dd6-b21e-44b334b3197e?theme=thick" seamless height="200" style="border:0" class="pinecast-embed" frameborder="0" width="100%"></iframe>
+
 <iframe width="100%" height="470" src="https://www.youtube.com/embed/K3UeCKaI3dk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 [Listen to Full (Audio) Episodes HERE.](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) Search "Chef(x)" in [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) or [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M) to subscribe.  
