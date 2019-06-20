@@ -1,7 +1,7 @@
 ![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
 [](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) [CLICK HERE for Meaningless Math Papers.](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
 
-[CLICK HERE for my BAD STANDING Letter. (I've been labeled a 'Rape Defender' for this. What do you think?)](https://drive.google.com/open?id=1wngiy6Vu8bhzdtx_NOy8waNmHaxiJQAN)
+[CLICK HERE for my BAD STANDING Letter. (I've been labeled a 'Rape Defender' for this letter. Is this a defense of rape? What do you think this is? Why?)](https://drive.google.com/open?id=1wngiy6Vu8bhzdtx_NOy8waNmHaxiJQAN)
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
