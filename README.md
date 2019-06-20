@@ -1,5 +1,5 @@
 ![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
-[](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) [CLICK HERE for Meaningless Math Papers.](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)
+[](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) [CLICK HERE for Meaningless Math Papers.](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) [CLICK HERE for my BAD STANDING Letter. (the letter that got me labeled a 'Rape Defender' and nearly evicted. Sheep Shit.)](https://drive.google.com/open?id=1wngiy6Vu8bhzdtx_NOy8waNmHaxiJQAN)
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
