@@ -1,8 +1,6 @@
 ![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
 [](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) [CLICK HERE for Meaningless MATHEMATICAL Papers.](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
 
-[CLICK HERE for my BAD STANDING Letter. (I've been labeled a 'Rape Defender' for this letter. Do you think it's a defense of rape? Why or why not?)](https://drive.google.com/open?id=1wngiy6Vu8bhzdtx_NOy8waNmHaxiJQAN)
-
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
 <iframe width="100%" height="470" src="https://www.youtube.com/embed/K3UeCKaI3dk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
@@ -18,3 +16,5 @@
 ![Conformity_005Pin_4LL_006Pin_6LLL](https://user-images.githubusercontent.com/25256570/56638453-185ac080-6623-11e9-8700-b782bb5c51ee.png)
 
 chefofx@gmail.com    
+
+[CLICK HERE for my BAD STANDING Letter.](https://drive.google.com/open?id=1wngiy6Vu8bhzdtx_NOy8waNmHaxiJQAN)
