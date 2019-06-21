@@ -17,4 +17,3 @@
 
 chefofx@gmail.com    
 
-[CLICK HERE for my BAD STANDING Letter.](https://drive.google.com/open?id=1wngiy6Vu8bhzdtx_NOy8waNmHaxiJQAN)
