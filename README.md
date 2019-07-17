@@ -17,7 +17,7 @@
 
 ![Conformity_005Pin_4LL_006Pin_6LLL](https://user-images.githubusercontent.com/25256570/56638453-185ac080-6623-11e9-8700-b782bb5c51ee.png)
 
-**The Purple Papers.** The basic principles behind all the Chef shit. [CLICK HERE for MATH.](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
+**The Purple Papers.** The basic principles behind all the Chef shit. [READ my MATH papers HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
 
 chefofx@gmail.com    
 
