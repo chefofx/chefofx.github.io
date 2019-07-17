@@ -1,5 +1,5 @@
 ![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
-[](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) [CLICK HERE for Meaningless MATH Papers.](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
+[](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) 
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
@@ -16,6 +16,8 @@
 **Chef(x) Comics.** Conceptual illustrations since 2015. [CLICK HERE to VIEW my DOODLES](https://www.instagram.com/chefofx/?hl=en)!
 
 ![Conformity_005Pin_4LL_006Pin_6LLL](https://user-images.githubusercontent.com/25256570/56638453-185ac080-6623-11e9-8700-b782bb5c51ee.png)
+
+**The Purple Papers.** The basic principles behind all the Chef shit. [CLICK HERE for MATH.](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
 
 chefofx@gmail.com    
 
