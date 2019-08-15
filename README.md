@@ -4,6 +4,7 @@
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
 [LISTEN to my FULL PODCASTS HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) or subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
+[Test Clip.](https://youtu.be/nCgwX2PbzOM)
 
 <iframe width="100%" height="470" src="https://www.youtube-nocookie.com/embed/S63N2aqV6xQ" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
