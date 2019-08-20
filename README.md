@@ -1,6 +1,3 @@
-![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
-[](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) 
-
 ![Screenshot (32)](https://user-images.githubusercontent.com/25256570/63314969-30cfa480-c2be-11e9-9d63-521fd7a28381.png)
 
 
