@@ -1,6 +1,9 @@
 ![gut1 1](https://user-images.githubusercontent.com/25256570/50060037-60cd1380-0143-11e9-8900-f682b8071d5e.png)
 [](https://drive.google.com/open?id=1rsG8FJndwGp2N7rGXBk1TpqgTqXBEsU5) 
 
+![Screenshot (32)](https://user-images.githubusercontent.com/25256570/63314969-30cfa480-c2be-11e9-9d63-521fd7a28381.png)
+
+
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
 [LISTEN to my FULL PODCASTS HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) or subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
