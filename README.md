@@ -17,7 +17,7 @@
 
 **Chef(x) Comics.** Conceptual illustrations since 2015. [CLICK HERE to VIEW my DOODLES](https://www.instagram.com/chefofx/?hl=en)!
 
-![Conformity_005Pin_4LL_006Pin_6LLL](https://user-images.githubusercontent.com/25256570/56638453-185ac080-6623-11e9-8700-b782bb5c51ee.png)
+![DiscreteContinuous_002Pin_1](https://user-images.githubusercontent.com/25256570/63496187-4ee00500-c476-11e9-9b0d-193616e7a8f4.png)
 
 **The Purple Papers.** The basic principles behind all the Chef shit. [READ my MATH papers HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)  
 
