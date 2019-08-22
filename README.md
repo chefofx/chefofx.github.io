@@ -21,5 +21,7 @@
 
 **The Purple Papers.** The basic principles behind all the Chef shit. [READ my MATH papers HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
 
+![Screenshot (35)](https://user-images.githubusercontent.com/25256570/63495679-26a3d680-c475-11e9-9876-f8ef9f3404f5.png)
+
 chefofx@gmail.com    
 
