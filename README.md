@@ -19,8 +19,7 @@
 
 ![DiscreteContinuous_002Pin_1](https://user-images.githubusercontent.com/25256570/63496187-4ee00500-c476-11e9-9b0d-193616e7a8f4.png)
 
-**The Purple Papers.** The basic principles behind all the Chef shit. [READ my MATH papers HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)  
-
 ![Screenshot (36)](https://user-images.githubusercontent.com/25256570/63495838-813d3280-c475-11e9-8ba5-5d7c0a7722e4.png)
 
+**The Purple Papers.** The basic principles behind all the Chef shit. [READ my MATH papers HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)  
 
