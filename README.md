@@ -19,8 +19,8 @@
 
 ![DiscreteContinuous_002Pin_1](https://user-images.githubusercontent.com/25256570/63497391-7fc13980-c478-11e9-9167-feaada70162d.png)
 
-![Screenshot (36)](https://user-images.githubusercontent.com/25256570/63495838-813d3280-c475-11e9-8ba5-5d7c0a7722e4.png)
-
+![Screenshot (35)](https://user-images.githubusercontent.com/25256570/63495679-26a3d680-c475-11e9-9876-f8ef9f3404f5.png)
 
 **The Purple Papers.** The basic principles behind all the Chef shit. [READ HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-).  
 
+![Screenshot (36)](https://user-images.githubusercontent.com/25256570/63495838-813d3280-c475-11e9-8ba5-5d7c0a7722e4.png)
