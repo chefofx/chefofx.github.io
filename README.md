@@ -3,23 +3,23 @@
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations.
 
-[LISTEN to PODCASTS HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) or subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
+[LISTEN HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a) or subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
 
 <iframe width="100%" height="470" src="https://www.youtube-nocookie.com/embed/S63N2aqV6xQ" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-[Test Clip.](https://youtu.be/nCgwX2PbzOM)
+[Test Clip](https://youtu.be/nCgwX2PbzOM).
 
 <iframe width="100%" height="470" src="https://www.youtube.com/embed/K3UeCKaI3dk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-**Red Chef Music.** Trap Shit + Poetry. [LISTEN to MUSIC HERE](https://soundcloud.com/redchef/albums). [READ LYRICS HERE](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
+**Red Chef Music.** Trap Shit + Poetry. [LISTEN HERE](https://soundcloud.com/redchef/albums). [READ LYRICS HERE](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
 <iframe width="100%" height="470" src="https://www.youtube.com/embed/G5UGMCzJHnw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-**Chef(x) Comics.** Conceptual illustrations since 2015. [CLICK GRAPHICS HERE](https://www.instagram.com/chefofx/?hl=en)!
+**Chef(x) Comics.** Conceptual illustrations since 2015. [VIEW HERE](https://www.instagram.com/chefofx/?hl=en).
 
 ![DiscreteContinuous_002Pin_1](https://user-images.githubusercontent.com/25256570/63496187-4ee00500-c476-11e9-9b0d-193616e7a8f4.png)
 
 ![Screenshot (36)](https://user-images.githubusercontent.com/25256570/63495838-813d3280-c475-11e9-8ba5-5d7c0a7722e4.png)
 
-**The Purple Papers.** The basic principles behind all the Chef shit. [READ HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)  
+**The Purple Papers.** The basic principles behind all the Chef shit. [READ HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-).  
 
