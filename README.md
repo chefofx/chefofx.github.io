@@ -13,6 +13,8 @@
 
 **Red Chef Music.** Trap Shit + Poetry. [LISTEN HERE](https://soundcloud.com/redchef/sets/grimy-on-timey). [READ LYRICS HERE](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
+![GOT_001Home](https://user-images.githubusercontent.com/25256570/63507029-a472dc80-c48b-11e9-8abb-7aff4da9d164.png)
+
 **Chef(x) Comics.** Conceptual illustrations since 2015. [VIEW HERE](https://www.instagram.com/chefofx/?hl=en).
 
 ![DiscreteContinuous_002Pin_1](https://user-images.githubusercontent.com/25256570/63497391-7fc13980-c478-11e9-9167-feaada70162d.png)
