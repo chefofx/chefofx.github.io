@@ -19,11 +19,7 @@
 
 ![Conformity_005Pin_4LL_006Pin_6LLL](https://user-images.githubusercontent.com/25256570/56638453-185ac080-6623-11e9-8700-b782bb5c51ee.png)
 
-**The Purple Papers.** The basic principles behind all the Chef shit. [READ my MATH papers HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-) 
-
-![Screenshot (35)](https://user-images.githubusercontent.com/25256570/63495679-26a3d680-c475-11e9-9876-f8ef9f3404f5.png)
-
-chefofx@gmail.com    
+**The Purple Papers.** The basic principles behind all the Chef shit. [READ my MATH papers HERE](https://drive.google.com/open?id=1eIErGm1g7K4sz4WCqiIOiKoobbV-yN7-)  
 
 ![Screenshot (36)](https://user-images.githubusercontent.com/25256570/63495838-813d3280-c475-11e9-8ba5-5d7c0a7722e4.png)
 
