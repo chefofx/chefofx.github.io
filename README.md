@@ -7,9 +7,7 @@
 
 <iframe width="100%" height="470" src="https://www.youtube-nocookie.com/embed/S63N2aqV6xQ" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-[Test Clip](https://youtu.be/nCgwX2PbzOM).
-
-<iframe width="100%" height="470" src="https://www.youtube.com/embed/K3UeCKaI3dk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="470" src="https://www.youtube.com/embed/u2y0OnCiU_g" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 **Red Chef Music.** Trap Shit + Poetry. [LISTEN HERE](https://soundcloud.com/redchef/sets/grimy-on-timey). [READ LYRICS HERE](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
