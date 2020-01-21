@@ -6,26 +6,11 @@
 
 [LISTEN HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a). Subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
 
-<iframe width="100%" height="500" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
-<iframe width="100%" height="460" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
-<iframe width="100%" height="440" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
-<iframe width="100%" height="400" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
 
 **Red Chef Music.** Trap Shit + Poetry. [LISTEN HERE](https://soundcloud.com/redchef/sets/grimy-on-timey). [READ LYRICS HERE](https://drive.google.com/open?id=1YJFqU4T3h9VbFE0tUbFX0o1KQvKV_XUc).
 
-<iframe width="100%" height="315" src="https://www.youtube.com/embed/bbRdZbmv7dE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height=width src="https://www.youtube.com/embed/bbRdZbmv7dE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 **Chef(x) Comics.** Conceptual illustrations since 2015. [VIEW HERE](https://www.instagram.com/chefofx/?hl=en).
 
