@@ -14,7 +14,7 @@
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/gByRCBbkHA8" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-[READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=1YgYcMmwnueK7skgggRQAD-OqLnw6F4lK)
+[READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=1YgYcMmwnueK7skgggRQAD-OqLnw6F4lK).
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/ieA2Si4TwOk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
