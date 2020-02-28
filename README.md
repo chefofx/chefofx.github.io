@@ -10,11 +10,11 @@
 
 **Red Chef Music.** Fake Trap Shit + Poetry. 
 
-[READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1KHerz2KUV1uolvdccLOwghfiFp0XRUyq).
+[READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1AdZ2zpQJbV5cJVU2Isleo2GQUiEH8O8g).
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/gByRCBbkHA8" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-[READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=1bPeKjPdxpUAhfmFkwVfqJiU1Df4JJiWv).
+[READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=19FhazVYzeHnSYLn3CVr_qpf_rfX84Km6).
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/ieA2Si4TwOk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
