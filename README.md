@@ -8,9 +8,15 @@
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-**Red Chef Music.** Fake Trap Shit + Poetry. [READ LYRICS HERE](https://drive.google.com/file/d/1OFccbLVI132mIO8nKCXclPRtX67zMO-u/view?usp=sharing).
+**Red Chef Music.** Fake Trap Shit + Poetry. 
+
+[READ "Young Davie" LYRICS HERE](https://drive.google.com/file/d/1OFccbLVI132mIO8nKCXclPRtX67zMO-u/view?usp=sharing).
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/gByRCBbkHA8" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+[READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=1YgYcMmwnueK7skgggRQAD-OqLnw6F4lK)
+
+<iframe width="100%" height="420" src="https://www.youtube.com/embed/ieA2Si4TwOk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 **Chef(x) Comics.** Conceptual illustrations since 2015. [VIEW HERE](https://www.instagram.com/chefofx/?hl=en).
 
