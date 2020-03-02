@@ -2,9 +2,11 @@
 
 **The Chef(x) Store.** Get your Chef hats and other Sheep shit @ [RealChefShit.com](http://www.realchefshit.com).
 
-**The Chef(x) Podcast.** Introspection, explanations, conversations.
+**The Chef(x) Podcast.** Introspection, explanations, conversations. 
 
-[LISTEN HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a). Subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M).
+[LISTEN HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a). Subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M). Now on Instagram [@chefofx.podcast](https://www.instagram.com/chefofx.podcast/?hl=en)!
+
+<iframe width="100%" height="420" src="https://www.youtube.com/embed/43CX_yflWjI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/5I0UFEAMZnY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
