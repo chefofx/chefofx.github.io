@@ -12,7 +12,7 @@ Chefs keep Cookin'. Even when no ones lookin'. Real Chef Shit.
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/XWmsf7_eDBE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-**Red Chef Music.** Fake Trap Shit + Poetry. 
+**Red Chef Music.** Niggatry + Poetry. 
 
 [READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1YJeulvsBUr8Uhu7fUfc7OgZoc3fLVW3l).
 
