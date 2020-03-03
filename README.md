@@ -1,11 +1,9 @@
 ![Screenshot (42)](https://user-images.githubusercontent.com/25256570/63829818-63f9df80-c91f-11e9-8613-6509c6cfada5.png)
 
 **The Chef(x) Store.** Get your Chef(x) Hats and Sheep Shirts @ [www.RealChefShit.com](http://www.realchefshit.com). 
-
 Chefs keep Cookin'. Even when no ones lookin'. Real Chef Shit.
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations. 
-
 [LISTEN HERE](https://www.youtube.com/playlist?list=PLpf-EegYnknQoeSkuJC-Tj7xEVUT-hO1a). Subscribe to 'The Chef(x) Podcast' on [iTunes](https://itunes.apple.com/us/podcast/the-chef-x-podcast/id1304107115?mt=2) and [Spotify](https://open.spotify.com/show/2621Jbw5efMNSr9MeSAR7M). Now on Instagram [@chefofx.podcast](https://www.instagram.com/chefofx.podcast/?hl=en)!
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/43CX_yflWjI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
