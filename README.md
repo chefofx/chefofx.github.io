@@ -13,7 +13,6 @@ Chefs keep Cookin'. Even when no ones lookin'. Real Chef Shit.
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/XWmsf7_eDBE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 **Red Chef Music.** Niggatry + Poetry. 
-
 [READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1YJeulvsBUr8Uhu7fUfc7OgZoc3fLVW3l).
 
 
@@ -23,7 +22,7 @@ Chefs keep Cookin'. Even when no ones lookin'. Real Chef Shit.
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/ieA2Si4TwOk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-**Chef(x) Comics.** Conceptual illustrations since 2015. [VIEW HERE](https://www.instagram.com/chefofx/?hl=en).
+**Chef(x) Comics.** Conceptual illustrations since 2015. [VIEW HERE (Instagram)](https://www.instagram.com/chefofx/?hl=en).
 
 ![DiscreteContinuous_002Pin_1](https://user-images.githubusercontent.com/25256570/63497391-7fc13980-c478-11e9-9167-feaada70162d.png)
 
