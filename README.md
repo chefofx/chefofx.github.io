@@ -1,6 +1,6 @@
 ![Screenshot (42)](https://user-images.githubusercontent.com/25256570/63829818-63f9df80-c91f-11e9-8613-6509c6cfada5.png)
 
-**The Chef(x) Store.** Get your Chef hats and other Sheep shit @ [RealChefShit.com](http://www.realchefshit.com).
+**The Chef(x) Store.** Get your Chef(x) hats (and other Sheep shit) @ [www.RealChefShit.com](http://www.realchefshit.com).
 
 **The Chef(x) Podcast.** Introspection, explanations, conversations. 
 
