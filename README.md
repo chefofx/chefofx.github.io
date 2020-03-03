@@ -14,7 +14,7 @@
 
 **Red Chef Music.** Fake Trap Shit + Poetry. 
 
-[READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1M0v0uLrhs-IpQxxQ_yPOsH1wNiTfLHiA).
+[READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1qS9IuoCHD_03ZwJrtYBDEhIeNGkmGc_1).
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/RURWAwu9lZ0" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
