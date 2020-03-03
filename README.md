@@ -16,7 +16,8 @@
 
 [READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1YJeulvsBUr8Uhu7fUfc7OgZoc3fLVW3l).
 
-<iframe width="100%" height="420" src="https://www.youtube.com/embed/I1Afki_yZJw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/I1Afki_yZJw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 [READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=19FhazVYzeHnSYLn3CVr_qpf_rfX84Km6).
 
