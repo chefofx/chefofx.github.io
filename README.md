@@ -17,8 +17,6 @@ Chefs keep Cookin'. Even when no ones lookin'. Real Chef Shit.
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/kPX19BtQ5Zs" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<iframe width="100%" height="420" src="https://www.youtube.com/embed/I1Afki_yZJw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
 [READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=19FhazVYzeHnSYLn3CVr_qpf_rfX84Km6).
 
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/ieA2Si4TwOk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
