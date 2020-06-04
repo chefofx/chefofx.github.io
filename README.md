@@ -13,9 +13,9 @@ Chefs keep Cookin'. Even when no ones lookin'. Real Chef Shit.
 <iframe width="100%" height="420" src="https://www.youtube.com/embed/XWmsf7_eDBE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 **Red Chef Music.** Niggatry + Poetry. 
-[READ "Young Davie" LYRICS HERE](https://drive.google.com/open?id=1HRZi_AzJCcCYo2ASIFQj92sKwpOQ4GPY).
+[READ "Young Davie" LYRICS HERE](https://drive.google.com/file/d/15VGG_M7XVXN_2Bi0huORq1kcfbsqpGf2/view?usp=sharing).
 
-<iframe width="100%" height="420" src="https://www.youtube.com/embed/kPX19BtQ5Zs" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="420" src="https://www.youtube.com/embed/Jv7Rl_2yhKo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 [READ "Grimy, On Timey" LYRICS HERE](https://drive.google.com/open?id=19FhazVYzeHnSYLn3CVr_qpf_rfX84Km6).
 
